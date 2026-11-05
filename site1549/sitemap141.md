@@ -1,6 +1,26 @@
 
 # 可乐影视 https://www.71yes.com
 
+- https://github.71yes.com/video/43627/
+- https://github.71yes.com/video/43626/
+- https://github.71yes.com/video/43625/
+- https://github.71yes.com/video/43624/
+- https://github.71yes.com/video/43623/
+- https://github.71yes.com/video/43622/
+- https://github.71yes.com/video/43621/
+- https://github.71yes.com/video/43620/
+- https://github.71yes.com/video/43619/
+- https://github.71yes.com/video/43618/
+- https://github.71yes.com/video/43617/
+- https://github.71yes.com/video/43616/
+- https://github.71yes.com/video/43615/
+- https://github.71yes.com/video/43614/
+- https://github.71yes.com/video/43613/
+- https://github.71yes.com/video/43612/
+- https://github.71yes.com/video/43611/
+- https://github.71yes.com/video/43610/
+- https://github.71yes.com/video/43609/
+- https://github.71yes.com/video/43608/
 - https://github.71yes.com/video/43607/
 - https://github.71yes.com/video/43606/
 - https://github.71yes.com/video/43605/

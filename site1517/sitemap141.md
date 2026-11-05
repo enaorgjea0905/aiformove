@@ -1,6 +1,26 @@
 
 # 盘子影视 https://www.dlj20.com
 
+- https://github.dlj20.com/video/33245/
+- https://github.dlj20.com/video/33244/
+- https://github.dlj20.com/video/33243/
+- https://github.dlj20.com/video/33242/
+- https://github.dlj20.com/video/33241/
+- https://github.dlj20.com/video/33240/
+- https://github.dlj20.com/video/33239/
+- https://github.dlj20.com/video/33238/
+- https://github.dlj20.com/video/33237/
+- https://github.dlj20.com/video/33236/
+- https://github.dlj20.com/video/33235/
+- https://github.dlj20.com/video/33234/
+- https://github.dlj20.com/video/33233/
+- https://github.dlj20.com/video/33232/
+- https://github.dlj20.com/video/33231/
+- https://github.dlj20.com/video/33230/
+- https://github.dlj20.com/video/33229/
+- https://github.dlj20.com/video/33228/
+- https://github.dlj20.com/video/33227/
+- https://github.dlj20.com/video/33226/
 - https://github.dlj20.com/video/33225/
 - https://github.dlj20.com/video/33224/
 - https://github.dlj20.com/video/33223/
