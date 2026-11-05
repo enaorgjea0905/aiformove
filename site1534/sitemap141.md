@@ -1,6 +1,11 @@
 
 # 久久电影网 https://www.silesia.cc
 
+- https://github.silesia.cc/video/98399/
+- https://github.silesia.cc/video/98398/
+- https://github.silesia.cc/video/98397/
+- https://github.silesia.cc/video/98396/
+- https://github.silesia.cc/video/98395/
 - https://github.silesia.cc/video/98394/
 - https://github.silesia.cc/video/98393/
 - https://github.silesia.cc/video/98392/

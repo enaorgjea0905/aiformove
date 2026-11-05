@@ -1,6 +1,11 @@
 
 # 可乐影视 https://www.71yes.com
 
+- https://github.71yes.com/video/43607/
+- https://github.71yes.com/video/43606/
+- https://github.71yes.com/video/43605/
+- https://github.71yes.com/video/43604/
+- https://github.71yes.com/video/43603/
 - https://github.71yes.com/video/43602/
 - https://github.71yes.com/video/43601/
 - https://github.71yes.com/video/43600/

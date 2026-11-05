@@ -1,6 +1,11 @@
 
 # 西瓜影院 https://www.dahun1314.com
 
+- https://github.dahun1314.com/video/76271/
+- https://github.dahun1314.com/video/76270/
+- https://github.dahun1314.com/video/76269/
+- https://github.dahun1314.com/video/76268/
+- https://github.dahun1314.com/video/76267/
 - https://github.dahun1314.com/video/76266/
 - https://github.dahun1314.com/video/76265/
 - https://github.dahun1314.com/video/76264/

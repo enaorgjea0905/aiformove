@@ -1,6 +1,11 @@
 
 # 橙子影院 https://www.ptavn.com
 
+- https://github.ptavn.com/video/72917/
+- https://github.ptavn.com/video/72916/
+- https://github.ptavn.com/video/72915/
+- https://github.ptavn.com/video/72914/
+- https://github.ptavn.com/video/72913/
 - https://github.ptavn.com/video/72912/
 - https://github.ptavn.com/video/72911/
 - https://github.ptavn.com/video/72910/

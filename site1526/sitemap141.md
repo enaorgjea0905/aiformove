@@ -1,6 +1,11 @@
 
 # 猪猪影视 https://www.u-super.com
 
+- https://github.u-super.com/video/20305/
+- https://github.u-super.com/video/20304/
+- https://github.u-super.com/video/20303/
+- https://github.u-super.com/video/20302/
+- https://github.u-super.com/video/20301/
 - https://github.u-super.com/video/20300/
 - https://github.u-super.com/video/20299/
 - https://github.u-super.com/video/20298/

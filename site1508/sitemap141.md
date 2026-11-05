@@ -1,6 +1,11 @@
 
 # 秋霞影院 https://www.haoq10.com
 
+- https://github.haoq10.com/video/96428/
+- https://github.haoq10.com/video/96427/
+- https://github.haoq10.com/video/96426/
+- https://github.haoq10.com/video/96425/
+- https://github.haoq10.com/video/96424/
 - https://github.haoq10.com/video/96423/
 - https://github.haoq10.com/video/96422/
 - https://github.haoq10.com/video/96421/
