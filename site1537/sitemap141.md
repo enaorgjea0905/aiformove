@@ -1,6 +1,11 @@
 
 # 海思追影 https://www.21city.cc
 
+- https://github.21city.cc/video/71006/
+- https://github.21city.cc/video/71005/
+- https://github.21city.cc/video/71004/
+- https://github.21city.cc/video/71003/
+- https://github.21city.cc/video/71002/
 - https://github.21city.cc/video/71001/
 - https://github.21city.cc/video/71000/
 - https://github.21city.cc/video/70999/

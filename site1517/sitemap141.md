@@ -1,6 +1,11 @@
 
 # 盘子影视 https://www.dlj20.com
 
+- https://github.dlj20.com/video/33225/
+- https://github.dlj20.com/video/33224/
+- https://github.dlj20.com/video/33223/
+- https://github.dlj20.com/video/33222/
+- https://github.dlj20.com/video/33221/
 - https://github.dlj20.com/video/33220/
 - https://github.dlj20.com/video/33219/
 - https://github.dlj20.com/video/33218/

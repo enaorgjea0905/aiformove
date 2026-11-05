@@ -1,6 +1,11 @@
 
 # 手牵手影院 https://www.lasiji.cc
 
+- https://github.lasiji.cc/video/87389/
+- https://github.lasiji.cc/video/87388/
+- https://github.lasiji.cc/video/87387/
+- https://github.lasiji.cc/video/87386/
+- https://github.lasiji.cc/video/87385/
 - https://github.lasiji.cc/video/87384/
 - https://github.lasiji.cc/video/87383/
 - https://github.lasiji.cc/video/87382/
