@@ -1,6 +1,11 @@
 
 # 天下影院 https://www.etodu.com
 
+- https://github.etodu.com/video/190075/
+- https://github.etodu.com/video/190074/
+- https://github.etodu.com/video/190073/
+- https://github.etodu.com/video/190072/
+- https://github.etodu.com/video/190071/
 - https://github.etodu.com/video/190070/
 - https://github.etodu.com/video/190069/
 - https://github.etodu.com/video/190068/
@@ -1996,11 +2001,6 @@
 - https://github.etodu.com/video/188078/
 - https://github.etodu.com/video/188077/
 - https://github.etodu.com/video/188076/
-- https://github.etodu.com/video/188075/
-- https://github.etodu.com/video/188074/
-- https://github.etodu.com/video/188073/
-- https://github.etodu.com/video/188072/
-- https://github.etodu.com/video/188071/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1553/index.md)

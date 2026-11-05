@@ -1,6 +1,11 @@
 
 # 天天影视 https://www.qgweixiu.com
 
+- https://github.qgweixiu.com/video/14312/
+- https://github.qgweixiu.com/video/14311/
+- https://github.qgweixiu.com/video/14310/
+- https://github.qgweixiu.com/video/14309/
+- https://github.qgweixiu.com/video/14308/
 - https://github.qgweixiu.com/video/14307/
 - https://github.qgweixiu.com/video/14306/
 - https://github.qgweixiu.com/video/14305/

@@ -1,6 +1,11 @@
 
 # 策驰影院 https://www.cxsldy.com
 
+- https://github.cxsldy.com/video/34877/
+- https://github.cxsldy.com/video/34876/
+- https://github.cxsldy.com/video/34875/
+- https://github.cxsldy.com/video/34874/
+- https://github.cxsldy.com/video/34873/
 - https://github.cxsldy.com/video/34872/
 - https://github.cxsldy.com/video/34871/
 - https://github.cxsldy.com/video/34870/

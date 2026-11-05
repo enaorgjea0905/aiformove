@@ -1,6 +1,11 @@
 
 # 愤愤电影网 https://www.hphornets.com
 
+- https://github.hphornets.com/video/71702/
+- https://github.hphornets.com/video/71701/
+- https://github.hphornets.com/video/71700/
+- https://github.hphornets.com/video/71699/
+- https://github.hphornets.com/video/71698/
 - https://github.hphornets.com/video/71697/
 - https://github.hphornets.com/video/71696/
 - https://github.hphornets.com/video/71695/

@@ -1,6 +1,11 @@
 
 # 优维纳影视 https://www.sq2xian.com
 
+- https://github.sq2xian.com/video/19354/
+- https://github.sq2xian.com/video/19353/
+- https://github.sq2xian.com/video/19352/
+- https://github.sq2xian.com/video/19351/
+- https://github.sq2xian.com/video/19350/
 - https://github.sq2xian.com/video/19349/
 - https://github.sq2xian.com/video/19348/
 - https://github.sq2xian.com/video/19347/

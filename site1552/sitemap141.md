@@ -1,6 +1,11 @@
 
 # 360影视 https://www.sdxhwz.com
 
+- https://github.sdxhwz.com/video/43937/
+- https://github.sdxhwz.com/video/43936/
+- https://github.sdxhwz.com/video/43935/
+- https://github.sdxhwz.com/video/43934/
+- https://github.sdxhwz.com/video/43933/
 - https://github.sdxhwz.com/video/43932/
 - https://github.sdxhwz.com/video/43931/
 - https://github.sdxhwz.com/video/43930/
