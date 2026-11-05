@@ -1,6 +1,11 @@
 
 # 花生电影院 https://www.ttyyzz.com
 
+- https://github.ttyyzz.com/video/77243/
+- https://github.ttyyzz.com/video/77242/
+- https://github.ttyyzz.com/video/77241/
+- https://github.ttyyzz.com/video/77240/
+- https://github.ttyyzz.com/video/77239/
 - https://github.ttyyzz.com/video/77238/
 - https://github.ttyyzz.com/video/77237/
 - https://github.ttyyzz.com/video/77236/
@@ -1996,11 +2001,6 @@
 - https://github.ttyyzz.com/video/75246/
 - https://github.ttyyzz.com/video/75245/
 - https://github.ttyyzz.com/video/75244/
-- https://github.ttyyzz.com/video/75243/
-- https://github.ttyyzz.com/video/75242/
-- https://github.ttyyzz.com/video/75241/
-- https://github.ttyyzz.com/video/75240/
-- https://github.ttyyzz.com/video/75239/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1548/index.md)

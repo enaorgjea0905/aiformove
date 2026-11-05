@@ -1,6 +1,11 @@
 
 # 西瓜影院 https://www.jiningershouche.com
 
+- https://github.jiningershouche.com/video/24541/
+- https://github.jiningershouche.com/video/24540/
+- https://github.jiningershouche.com/video/24539/
+- https://github.jiningershouche.com/video/24538/
+- https://github.jiningershouche.com/video/24537/
 - https://github.jiningershouche.com/video/24536/
 - https://github.jiningershouche.com/video/24535/
 - https://github.jiningershouche.com/video/24534/

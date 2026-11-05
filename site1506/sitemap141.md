@@ -1,6 +1,11 @@
 
 # 美剧影院 https://www.dreamcupopen.com
 
+- https://github.dreamcupopen.com/video/33469/
+- https://github.dreamcupopen.com/video/33468/
+- https://github.dreamcupopen.com/video/33467/
+- https://github.dreamcupopen.com/video/33466/
+- https://github.dreamcupopen.com/video/33465/
 - https://github.dreamcupopen.com/video/33464/
 - https://github.dreamcupopen.com/video/33463/
 - https://github.dreamcupopen.com/video/33462/

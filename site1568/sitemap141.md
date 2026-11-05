@@ -1,6 +1,11 @@
 
 # 闪闪电影院 https://www.zhengshushoucang.com
 
+- https://github.zhengshushoucang.com/video/68025/
+- https://github.zhengshushoucang.com/video/68024/
+- https://github.zhengshushoucang.com/video/68023/
+- https://github.zhengshushoucang.com/video/68022/
+- https://github.zhengshushoucang.com/video/68021/
 - https://github.zhengshushoucang.com/video/68020/
 - https://github.zhengshushoucang.com/video/68019/
 - https://github.zhengshushoucang.com/video/68018/

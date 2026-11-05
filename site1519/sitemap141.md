@@ -1,6 +1,11 @@
 
 # 西瓜影院 https://www.xwy7.com
 
+- https://github.xwy7.com/video/14867/
+- https://github.xwy7.com/video/14866/
+- https://github.xwy7.com/video/14865/
+- https://github.xwy7.com/video/14864/
+- https://github.xwy7.com/video/14863/
 - https://github.xwy7.com/video/14862/
 - https://github.xwy7.com/video/14861/
 - https://github.xwy7.com/video/14860/
