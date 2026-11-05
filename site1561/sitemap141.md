@@ -1,6 +1,11 @@
 
 # 8090电影网 https://www.aokangmeiyuan.com
 
+- https://github.aokangmeiyuan.com/video/44623/
+- https://github.aokangmeiyuan.com/video/44622/
+- https://github.aokangmeiyuan.com/video/44621/
+- https://github.aokangmeiyuan.com/video/44620/
+- https://github.aokangmeiyuan.com/video/44619/
 - https://github.aokangmeiyuan.com/video/44618/
 - https://github.aokangmeiyuan.com/video/44617/
 - https://github.aokangmeiyuan.com/video/44616/

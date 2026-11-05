@@ -1,6 +1,11 @@
 
 # 海思追影 https://www.bksbook.com
 
+- https://github.bksbook.com/video/28488/
+- https://github.bksbook.com/video/28487/
+- https://github.bksbook.com/video/28486/
+- https://github.bksbook.com/video/28485/
+- https://github.bksbook.com/video/28484/
 - https://github.bksbook.com/video/28483/
 - https://github.bksbook.com/video/28482/
 - https://github.bksbook.com/video/28481/
@@ -1996,11 +2001,6 @@
 - https://github.bksbook.com/video/26491/
 - https://github.bksbook.com/video/26490/
 - https://github.bksbook.com/video/26489/
-- https://github.bksbook.com/video/26488/
-- https://github.bksbook.com/video/26487/
-- https://github.bksbook.com/video/26486/
-- https://github.bksbook.com/video/26485/
-- https://github.bksbook.com/video/26484/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1511/index.md)

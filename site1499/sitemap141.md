@@ -1,6 +1,11 @@
 
 # 大白影视 https://www.tszhongshundx.com
 
+- https://github.tszhongshundx.com/video/77254/
+- https://github.tszhongshundx.com/video/77253/
+- https://github.tszhongshundx.com/video/77252/
+- https://github.tszhongshundx.com/video/77251/
+- https://github.tszhongshundx.com/video/77250/
 - https://github.tszhongshundx.com/video/77249/
 - https://github.tszhongshundx.com/video/77248/
 - https://github.tszhongshundx.com/video/77247/

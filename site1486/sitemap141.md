@@ -1,6 +1,11 @@
 
 # 电影天堂 https://www.ycdonghua.com
 
+- https://github.ycdonghua.com/video/76155/
+- https://github.ycdonghua.com/video/76154/
+- https://github.ycdonghua.com/video/76153/
+- https://github.ycdonghua.com/video/76152/
+- https://github.ycdonghua.com/video/76151/
 - https://github.ycdonghua.com/video/76150/
 - https://github.ycdonghua.com/video/76149/
 - https://github.ycdonghua.com/video/76148/

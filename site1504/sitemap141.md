@@ -1,6 +1,11 @@
 
 # 泡泡影视 https://www.fzdz88.com
 
+- https://github.fzdz88.com/video/78668/
+- https://github.fzdz88.com/video/78667/
+- https://github.fzdz88.com/video/78666/
+- https://github.fzdz88.com/video/78665/
+- https://github.fzdz88.com/video/78664/
 - https://github.fzdz88.com/video/78663/
 - https://github.fzdz88.com/video/78662/
 - https://github.fzdz88.com/video/78661/

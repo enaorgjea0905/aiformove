@@ -1,6 +1,11 @@
 
 # 光棍影院 https://www.fmaoo.com
 
+- https://github.fmaoo.com/video/72976/
+- https://github.fmaoo.com/video/72975/
+- https://github.fmaoo.com/video/72974/
+- https://github.fmaoo.com/video/72973/
+- https://github.fmaoo.com/video/72972/
 - https://github.fmaoo.com/video/72971/
 - https://github.fmaoo.com/video/72970/
 - https://github.fmaoo.com/video/72969/
