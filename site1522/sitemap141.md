@@ -1,6 +1,26 @@
 
 # 光棍影院 https://www.fmaoo.com
 
+- https://github.fmaoo.com/video/72996/
+- https://github.fmaoo.com/video/72995/
+- https://github.fmaoo.com/video/72994/
+- https://github.fmaoo.com/video/72993/
+- https://github.fmaoo.com/video/72992/
+- https://github.fmaoo.com/video/72991/
+- https://github.fmaoo.com/video/72990/
+- https://github.fmaoo.com/video/72989/
+- https://github.fmaoo.com/video/72988/
+- https://github.fmaoo.com/video/72987/
+- https://github.fmaoo.com/video/72986/
+- https://github.fmaoo.com/video/72985/
+- https://github.fmaoo.com/video/72984/
+- https://github.fmaoo.com/video/72983/
+- https://github.fmaoo.com/video/72982/
+- https://github.fmaoo.com/video/72981/
+- https://github.fmaoo.com/video/72980/
+- https://github.fmaoo.com/video/72979/
+- https://github.fmaoo.com/video/72978/
+- https://github.fmaoo.com/video/72977/
 - https://github.fmaoo.com/video/72976/
 - https://github.fmaoo.com/video/72975/
 - https://github.fmaoo.com/video/72974/
