@@ -1,6 +1,26 @@
 
 # 8090电影网 https://www.aokangmeiyuan.com
 
+- https://github.aokangmeiyuan.com/video/44643/
+- https://github.aokangmeiyuan.com/video/44642/
+- https://github.aokangmeiyuan.com/video/44641/
+- https://github.aokangmeiyuan.com/video/44640/
+- https://github.aokangmeiyuan.com/video/44639/
+- https://github.aokangmeiyuan.com/video/44638/
+- https://github.aokangmeiyuan.com/video/44637/
+- https://github.aokangmeiyuan.com/video/44636/
+- https://github.aokangmeiyuan.com/video/44635/
+- https://github.aokangmeiyuan.com/video/44634/
+- https://github.aokangmeiyuan.com/video/44633/
+- https://github.aokangmeiyuan.com/video/44632/
+- https://github.aokangmeiyuan.com/video/44631/
+- https://github.aokangmeiyuan.com/video/44630/
+- https://github.aokangmeiyuan.com/video/44629/
+- https://github.aokangmeiyuan.com/video/44628/
+- https://github.aokangmeiyuan.com/video/44627/
+- https://github.aokangmeiyuan.com/video/44626/
+- https://github.aokangmeiyuan.com/video/44625/
+- https://github.aokangmeiyuan.com/video/44624/
 - https://github.aokangmeiyuan.com/video/44623/
 - https://github.aokangmeiyuan.com/video/44622/
 - https://github.aokangmeiyuan.com/video/44621/

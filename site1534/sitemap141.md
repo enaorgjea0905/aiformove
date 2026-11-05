@@ -1,6 +1,26 @@
 
 # 久久电影网 https://www.silesia.cc
 
+- https://github.silesia.cc/video/98419/
+- https://github.silesia.cc/video/98418/
+- https://github.silesia.cc/video/98417/
+- https://github.silesia.cc/video/98416/
+- https://github.silesia.cc/video/98415/
+- https://github.silesia.cc/video/98414/
+- https://github.silesia.cc/video/98413/
+- https://github.silesia.cc/video/98412/
+- https://github.silesia.cc/video/98411/
+- https://github.silesia.cc/video/98410/
+- https://github.silesia.cc/video/98409/
+- https://github.silesia.cc/video/98408/
+- https://github.silesia.cc/video/98407/
+- https://github.silesia.cc/video/98406/
+- https://github.silesia.cc/video/98405/
+- https://github.silesia.cc/video/98404/
+- https://github.silesia.cc/video/98403/
+- https://github.silesia.cc/video/98402/
+- https://github.silesia.cc/video/98401/
+- https://github.silesia.cc/video/98400/
 - https://github.silesia.cc/video/98399/
 - https://github.silesia.cc/video/98398/
 - https://github.silesia.cc/video/98397/

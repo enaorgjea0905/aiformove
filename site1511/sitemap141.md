@@ -1,6 +1,26 @@
 
 # 海思追影 https://www.bksbook.com
 
+- https://github.bksbook.com/video/18508/
+- https://github.bksbook.com/video/18507/
+- https://github.bksbook.com/video/18506/
+- https://github.bksbook.com/video/18505/
+- https://github.bksbook.com/video/18504/
+- https://github.bksbook.com/video/18503/
+- https://github.bksbook.com/video/18502/
+- https://github.bksbook.com/video/18501/
+- https://github.bksbook.com/video/18500/
+- https://github.bksbook.com/video/18499/
+- https://github.bksbook.com/video/18498/
+- https://github.bksbook.com/video/18497/
+- https://github.bksbook.com/video/18496/
+- https://github.bksbook.com/video/18495/
+- https://github.bksbook.com/video/18494/
+- https://github.bksbook.com/video/18493/
+- https://github.bksbook.com/video/18492/
+- https://github.bksbook.com/video/18491/
+- https://github.bksbook.com/video/18490/
+- https://github.bksbook.com/video/18489/
 - https://github.bksbook.com/video/18488/
 - https://github.bksbook.com/video/18487/
 - https://github.bksbook.com/video/18486/
