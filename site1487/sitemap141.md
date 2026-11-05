@@ -1,6 +1,11 @@
 
 # BT影视 https://www.agroastur.com
 
+- https://github.agroastur.com/video/74570/
+- https://github.agroastur.com/video/74569/
+- https://github.agroastur.com/video/74568/
+- https://github.agroastur.com/video/74567/
+- https://github.agroastur.com/video/74566/
 - https://github.agroastur.com/video/74565/
 - https://github.agroastur.com/video/74564/
 - https://github.agroastur.com/video/74563/

@@ -1,6 +1,11 @@
 
 # 天下影院 https://www.etodu.com
 
+- https://github.etodu.com/video/50075/
+- https://github.etodu.com/video/50074/
+- https://github.etodu.com/video/50073/
+- https://github.etodu.com/video/50072/
+- https://github.etodu.com/video/50071/
 - https://github.etodu.com/video/50070/
 - https://github.etodu.com/video/50069/
 - https://github.etodu.com/video/50068/

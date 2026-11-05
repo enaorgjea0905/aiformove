@@ -1,6 +1,11 @@
 
 # 猪猪影视 https://www.zmqdy.com
 
+- https://github.zmqdy.com/video/77117/
+- https://github.zmqdy.com/video/77116/
+- https://github.zmqdy.com/video/77115/
+- https://github.zmqdy.com/video/77114/
+- https://github.zmqdy.com/video/77113/
 - https://github.zmqdy.com/video/77112/
 - https://github.zmqdy.com/video/77111/
 - https://github.zmqdy.com/video/77110/

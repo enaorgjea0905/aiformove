@@ -1,6 +1,11 @@
 
 # 麻花电影网 https://www.hangzhoujialu.com
 
+- https://github.hangzhoujialu.com/video/40443/
+- https://github.hangzhoujialu.com/video/40442/
+- https://github.hangzhoujialu.com/video/40441/
+- https://github.hangzhoujialu.com/video/40440/
+- https://github.hangzhoujialu.com/video/40439/
 - https://github.hangzhoujialu.com/video/40438/
 - https://github.hangzhoujialu.com/video/40437/
 - https://github.hangzhoujialu.com/video/40436/

@@ -1,6 +1,11 @@
 
 # 首播影院 https://www.tetbil.com
 
+- https://github.tetbil.com/video/85941/
+- https://github.tetbil.com/video/85940/
+- https://github.tetbil.com/video/85939/
+- https://github.tetbil.com/video/85938/
+- https://github.tetbil.com/video/85937/
 - https://github.tetbil.com/video/85936/
 - https://github.tetbil.com/video/85935/
 - https://github.tetbil.com/video/85934/

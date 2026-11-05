@@ -1,6 +1,11 @@
 
 # 海思追影 https://www.bksbook.com
 
+- https://github.bksbook.com/video/18488/
+- https://github.bksbook.com/video/18487/
+- https://github.bksbook.com/video/18486/
+- https://github.bksbook.com/video/18485/
+- https://github.bksbook.com/video/18484/
 - https://github.bksbook.com/video/18483/
 - https://github.bksbook.com/video/18482/
 - https://github.bksbook.com/video/18481/

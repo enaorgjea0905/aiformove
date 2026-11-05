@@ -1,6 +1,11 @@
 
 # 农民影视 https://www.geenorth.com
 
+- https://github.geenorth.com/video/76968/
+- https://github.geenorth.com/video/76967/
+- https://github.geenorth.com/video/76966/
+- https://github.geenorth.com/video/76965/
+- https://github.geenorth.com/video/76964/
 - https://github.geenorth.com/video/76963/
 - https://github.geenorth.com/video/76962/
 - https://github.geenorth.com/video/76961/
@@ -1996,11 +2001,6 @@
 - https://github.geenorth.com/video/74971/
 - https://github.geenorth.com/video/74970/
 - https://github.geenorth.com/video/74969/
-- https://github.geenorth.com/video/74968/
-- https://github.geenorth.com/video/74967/
-- https://github.geenorth.com/video/74966/
-- https://github.geenorth.com/video/74965/
-- https://github.geenorth.com/video/74964/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1507/index.md)

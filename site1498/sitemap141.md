@@ -1,6 +1,11 @@
 
 # 久久电影网 https://www.fjfybjyy.com
 
+- https://github.fjfybjyy.com/video/12853/
+- https://github.fjfybjyy.com/video/12852/
+- https://github.fjfybjyy.com/video/12851/
+- https://github.fjfybjyy.com/video/12850/
+- https://github.fjfybjyy.com/video/12849/
 - https://github.fjfybjyy.com/video/12848/
 - https://github.fjfybjyy.com/video/12847/
 - https://github.fjfybjyy.com/video/12846/

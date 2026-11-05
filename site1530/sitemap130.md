@@ -1,6 +1,11 @@
 
 # 策驰影院 https://www.cotachi.com
 
+- https://github.cotachi.com/video/72699/
+- https://github.cotachi.com/video/72698/
+- https://github.cotachi.com/video/72697/
+- https://github.cotachi.com/video/72696/
+- https://github.cotachi.com/video/72695/
 - https://github.cotachi.com/video/72694/
 - https://github.cotachi.com/video/72693/
 - https://github.cotachi.com/video/72692/
@@ -1996,11 +2001,6 @@
 - https://github.cotachi.com/video/70702/
 - https://github.cotachi.com/video/70701/
 - https://github.cotachi.com/video/70700/
-- https://github.cotachi.com/video/70699/
-- https://github.cotachi.com/video/70698/
-- https://github.cotachi.com/video/70697/
-- https://github.cotachi.com/video/70696/
-- https://github.cotachi.com/video/70695/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1530/index.md)
