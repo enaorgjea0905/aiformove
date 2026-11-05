@@ -1,6 +1,11 @@
 
 # 农民影视 https://www.bdet472.com
 
+- https://github.bdet472.com/video/66998/
+- https://github.bdet472.com/video/66997/
+- https://github.bdet472.com/video/66996/
+- https://github.bdet472.com/video/66995/
+- https://github.bdet472.com/video/66994/
 - https://github.bdet472.com/video/66993/
 - https://github.bdet472.com/video/66992/
 - https://github.bdet472.com/video/66991/
@@ -1996,11 +2001,6 @@
 - https://github.bdet472.com/video/65001/
 - https://github.bdet472.com/video/65000/
 - https://github.bdet472.com/video/64999/
-- https://github.bdet472.com/video/64998/
-- https://github.bdet472.com/video/64997/
-- https://github.bdet472.com/video/64996/
-- https://github.bdet472.com/video/64995/
-- https://github.bdet472.com/video/64994/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1502/index.md)

@@ -1,6 +1,11 @@
 
 # 光棍影院 https://www.fuke-com.com
 
+- https://github.fuke-com.com/video/88003/
+- https://github.fuke-com.com/video/88002/
+- https://github.fuke-com.com/video/88001/
+- https://github.fuke-com.com/video/88000/
+- https://github.fuke-com.com/video/87999/
 - https://github.fuke-com.com/video/87998/
 - https://github.fuke-com.com/video/87997/
 - https://github.fuke-com.com/video/87996/

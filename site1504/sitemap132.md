@@ -1,6 +1,11 @@
 
 # 泡泡影视 https://www.fzdz88.com
 
+- https://github.fzdz88.com/video/96668/
+- https://github.fzdz88.com/video/96667/
+- https://github.fzdz88.com/video/96666/
+- https://github.fzdz88.com/video/96665/
+- https://github.fzdz88.com/video/96664/
 - https://github.fzdz88.com/video/96663/
 - https://github.fzdz88.com/video/96662/
 - https://github.fzdz88.com/video/96661/
@@ -1996,11 +2001,6 @@
 - https://github.fzdz88.com/video/94671/
 - https://github.fzdz88.com/video/94670/
 - https://github.fzdz88.com/video/94669/
-- https://github.fzdz88.com/video/94668/
-- https://github.fzdz88.com/video/94667/
-- https://github.fzdz88.com/video/94666/
-- https://github.fzdz88.com/video/94665/
-- https://github.fzdz88.com/video/94664/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1504/index.md)

@@ -1,6 +1,11 @@
 
 # 农民影视 https://www.kondfu.com
 
+- https://github.kondfu.com/video/76507/
+- https://github.kondfu.com/video/76506/
+- https://github.kondfu.com/video/76505/
+- https://github.kondfu.com/video/76504/
+- https://github.kondfu.com/video/76503/
 - https://github.kondfu.com/video/76502/
 - https://github.kondfu.com/video/76501/
 - https://github.kondfu.com/video/76500/
