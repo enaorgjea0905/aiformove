@@ -1,6 +1,11 @@
 
 # 久久电影网 https://www.hifashionindia.com
 
+- https://github.hifashionindia.com/video/16865/
+- https://github.hifashionindia.com/video/16864/
+- https://github.hifashionindia.com/video/16863/
+- https://github.hifashionindia.com/video/16862/
+- https://github.hifashionindia.com/video/16861/
 - https://github.hifashionindia.com/video/16860/
 - https://github.hifashionindia.com/video/16859/
 - https://github.hifashionindia.com/video/16858/

@@ -1,6 +1,11 @@
 
 # 首播影院 https://www.yaochiwenquan.com
 
+- https://github.yaochiwenquan.com/video/96025/
+- https://github.yaochiwenquan.com/video/96024/
+- https://github.yaochiwenquan.com/video/96023/
+- https://github.yaochiwenquan.com/video/96022/
+- https://github.yaochiwenquan.com/video/96021/
 - https://github.yaochiwenquan.com/video/96020/
 - https://github.yaochiwenquan.com/video/96019/
 - https://github.yaochiwenquan.com/video/96018/

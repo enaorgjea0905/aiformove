@@ -1,6 +1,11 @@
 
 # 左岸泡泡影视 https://www.zuoan.cc
 
+- https://github.zuoan.cc/video/74467/
+- https://github.zuoan.cc/video/74466/
+- https://github.zuoan.cc/video/74465/
+- https://github.zuoan.cc/video/74464/
+- https://github.zuoan.cc/video/74463/
 - https://github.zuoan.cc/video/74462/
 - https://github.zuoan.cc/video/74461/
 - https://github.zuoan.cc/video/74460/
@@ -1996,11 +2001,6 @@
 - https://github.zuoan.cc/video/72470/
 - https://github.zuoan.cc/video/72469/
 - https://github.zuoan.cc/video/72468/
-- https://github.zuoan.cc/video/72467/
-- https://github.zuoan.cc/video/72466/
-- https://github.zuoan.cc/video/72465/
-- https://github.zuoan.cc/video/72464/
-- https://github.zuoan.cc/video/72463/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1422/index.md)

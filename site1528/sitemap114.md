@@ -1,6 +1,11 @@
 
 # 首播影院 https://www.tetbil.com
 
+- https://github.tetbil.com/video/139941/
+- https://github.tetbil.com/video/139940/
+- https://github.tetbil.com/video/139939/
+- https://github.tetbil.com/video/139938/
+- https://github.tetbil.com/video/139937/
 - https://github.tetbil.com/video/139936/
 - https://github.tetbil.com/video/139935/
 - https://github.tetbil.com/video/139934/
@@ -1996,11 +2001,6 @@
 - https://github.tetbil.com/video/137944/
 - https://github.tetbil.com/video/137943/
 - https://github.tetbil.com/video/137942/
-- https://github.tetbil.com/video/137941/
-- https://github.tetbil.com/video/137940/
-- https://github.tetbil.com/video/137939/
-- https://github.tetbil.com/video/137938/
-- https://github.tetbil.com/video/137937/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1528/index.md)

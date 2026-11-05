@@ -1,6 +1,11 @@
 
 # 麻花电影网 https://www.yqsgnk.com
 
+- https://github.yqsgnk.com/video/100010/
+- https://github.yqsgnk.com/video/100009/
+- https://github.yqsgnk.com/video/100008/
+- https://github.yqsgnk.com/video/100007/
+- https://github.yqsgnk.com/video/100006/
 - https://github.yqsgnk.com/video/100005/
 - https://github.yqsgnk.com/video/100004/
 - https://github.yqsgnk.com/video/100003/
