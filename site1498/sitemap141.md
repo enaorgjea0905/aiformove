@@ -1,6 +1,26 @@
 
 # 久久电影网 https://www.fjfybjyy.com
 
+- https://github.fjfybjyy.com/video/12873/
+- https://github.fjfybjyy.com/video/12872/
+- https://github.fjfybjyy.com/video/12871/
+- https://github.fjfybjyy.com/video/12870/
+- https://github.fjfybjyy.com/video/12869/
+- https://github.fjfybjyy.com/video/12868/
+- https://github.fjfybjyy.com/video/12867/
+- https://github.fjfybjyy.com/video/12866/
+- https://github.fjfybjyy.com/video/12865/
+- https://github.fjfybjyy.com/video/12864/
+- https://github.fjfybjyy.com/video/12863/
+- https://github.fjfybjyy.com/video/12862/
+- https://github.fjfybjyy.com/video/12861/
+- https://github.fjfybjyy.com/video/12860/
+- https://github.fjfybjyy.com/video/12859/
+- https://github.fjfybjyy.com/video/12858/
+- https://github.fjfybjyy.com/video/12857/
+- https://github.fjfybjyy.com/video/12856/
+- https://github.fjfybjyy.com/video/12855/
+- https://github.fjfybjyy.com/video/12854/
 - https://github.fjfybjyy.com/video/12853/
 - https://github.fjfybjyy.com/video/12852/
 - https://github.fjfybjyy.com/video/12851/

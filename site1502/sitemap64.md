@@ -1,6 +1,26 @@
 
 # 农民影视 https://www.bdet472.com
 
+- https://github.bdet472.com/video/181018/
+- https://github.bdet472.com/video/181017/
+- https://github.bdet472.com/video/181016/
+- https://github.bdet472.com/video/181015/
+- https://github.bdet472.com/video/181014/
+- https://github.bdet472.com/video/181013/
+- https://github.bdet472.com/video/181012/
+- https://github.bdet472.com/video/181011/
+- https://github.bdet472.com/video/181010/
+- https://github.bdet472.com/video/181009/
+- https://github.bdet472.com/video/181008/
+- https://github.bdet472.com/video/181007/
+- https://github.bdet472.com/video/181006/
+- https://github.bdet472.com/video/181005/
+- https://github.bdet472.com/video/181004/
+- https://github.bdet472.com/video/181003/
+- https://github.bdet472.com/video/181002/
+- https://github.bdet472.com/video/181001/
+- https://github.bdet472.com/video/181000/
+- https://github.bdet472.com/video/180999/
 - https://github.bdet472.com/video/180998/
 - https://github.bdet472.com/video/180997/
 - https://github.bdet472.com/video/180996/
@@ -1981,26 +2001,6 @@
 - https://github.bdet472.com/video/179021/
 - https://github.bdet472.com/video/179020/
 - https://github.bdet472.com/video/179019/
-- https://github.bdet472.com/video/179018/
-- https://github.bdet472.com/video/179017/
-- https://github.bdet472.com/video/179016/
-- https://github.bdet472.com/video/179015/
-- https://github.bdet472.com/video/179014/
-- https://github.bdet472.com/video/179013/
-- https://github.bdet472.com/video/179012/
-- https://github.bdet472.com/video/179011/
-- https://github.bdet472.com/video/179010/
-- https://github.bdet472.com/video/179009/
-- https://github.bdet472.com/video/179008/
-- https://github.bdet472.com/video/179007/
-- https://github.bdet472.com/video/179006/
-- https://github.bdet472.com/video/179005/
-- https://github.bdet472.com/video/179004/
-- https://github.bdet472.com/video/179003/
-- https://github.bdet472.com/video/179002/
-- https://github.bdet472.com/video/179001/
-- https://github.bdet472.com/video/179000/
-- https://github.bdet472.com/video/178999/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1502/index.md)

@@ -1,6 +1,26 @@
 
 # 天天影视 https://www.bjabedb.com
 
+- https://github.bjabedb.com/video/71478/
+- https://github.bjabedb.com/video/71477/
+- https://github.bjabedb.com/video/71476/
+- https://github.bjabedb.com/video/71475/
+- https://github.bjabedb.com/video/71474/
+- https://github.bjabedb.com/video/71473/
+- https://github.bjabedb.com/video/71472/
+- https://github.bjabedb.com/video/71471/
+- https://github.bjabedb.com/video/71470/
+- https://github.bjabedb.com/video/71469/
+- https://github.bjabedb.com/video/71468/
+- https://github.bjabedb.com/video/71467/
+- https://github.bjabedb.com/video/71466/
+- https://github.bjabedb.com/video/71465/
+- https://github.bjabedb.com/video/71464/
+- https://github.bjabedb.com/video/71463/
+- https://github.bjabedb.com/video/71462/
+- https://github.bjabedb.com/video/71461/
+- https://github.bjabedb.com/video/71460/
+- https://github.bjabedb.com/video/71459/
 - https://github.bjabedb.com/video/71458/
 - https://github.bjabedb.com/video/71457/
 - https://github.bjabedb.com/video/71456/
@@ -1981,26 +2001,6 @@
 - https://github.bjabedb.com/video/69481/
 - https://github.bjabedb.com/video/69480/
 - https://github.bjabedb.com/video/69479/
-- https://github.bjabedb.com/video/69478/
-- https://github.bjabedb.com/video/69477/
-- https://github.bjabedb.com/video/69476/
-- https://github.bjabedb.com/video/69475/
-- https://github.bjabedb.com/video/69474/
-- https://github.bjabedb.com/video/69473/
-- https://github.bjabedb.com/video/69472/
-- https://github.bjabedb.com/video/69471/
-- https://github.bjabedb.com/video/69470/
-- https://github.bjabedb.com/video/69469/
-- https://github.bjabedb.com/video/69468/
-- https://github.bjabedb.com/video/69467/
-- https://github.bjabedb.com/video/69466/
-- https://github.bjabedb.com/video/69465/
-- https://github.bjabedb.com/video/69464/
-- https://github.bjabedb.com/video/69463/
-- https://github.bjabedb.com/video/69462/
-- https://github.bjabedb.com/video/69461/
-- https://github.bjabedb.com/video/69460/
-- https://github.bjabedb.com/video/69459/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1570/index.md)

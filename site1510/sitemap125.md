@@ -1,6 +1,26 @@
 
 # 新视觉影视 https://www.as-go.com
 
+- https://github.as-go.com/video/71951/
+- https://github.as-go.com/video/71950/
+- https://github.as-go.com/video/71949/
+- https://github.as-go.com/video/71948/
+- https://github.as-go.com/video/71947/
+- https://github.as-go.com/video/71946/
+- https://github.as-go.com/video/71945/
+- https://github.as-go.com/video/71944/
+- https://github.as-go.com/video/71943/
+- https://github.as-go.com/video/71942/
+- https://github.as-go.com/video/71941/
+- https://github.as-go.com/video/71940/
+- https://github.as-go.com/video/71939/
+- https://github.as-go.com/video/71938/
+- https://github.as-go.com/video/71937/
+- https://github.as-go.com/video/71936/
+- https://github.as-go.com/video/71935/
+- https://github.as-go.com/video/71934/
+- https://github.as-go.com/video/71933/
+- https://github.as-go.com/video/71932/
 - https://github.as-go.com/video/71931/
 - https://github.as-go.com/video/71930/
 - https://github.as-go.com/video/71929/
@@ -1981,26 +2001,6 @@
 - https://github.as-go.com/video/69954/
 - https://github.as-go.com/video/69953/
 - https://github.as-go.com/video/69952/
-- https://github.as-go.com/video/69951/
-- https://github.as-go.com/video/69950/
-- https://github.as-go.com/video/69949/
-- https://github.as-go.com/video/69948/
-- https://github.as-go.com/video/69947/
-- https://github.as-go.com/video/69946/
-- https://github.as-go.com/video/69945/
-- https://github.as-go.com/video/69944/
-- https://github.as-go.com/video/69943/
-- https://github.as-go.com/video/69942/
-- https://github.as-go.com/video/69941/
-- https://github.as-go.com/video/69940/
-- https://github.as-go.com/video/69939/
-- https://github.as-go.com/video/69938/
-- https://github.as-go.com/video/69937/
-- https://github.as-go.com/video/69936/
-- https://github.as-go.com/video/69935/
-- https://github.as-go.com/video/69934/
-- https://github.as-go.com/video/69933/
-- https://github.as-go.com/video/69932/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1510/index.md)
