@@ -1,6 +1,26 @@
 
 # 美剧影院 https://www.dreamcupopen.com
 
+- https://github.dreamcupopen.com/video/33489/
+- https://github.dreamcupopen.com/video/33488/
+- https://github.dreamcupopen.com/video/33487/
+- https://github.dreamcupopen.com/video/33486/
+- https://github.dreamcupopen.com/video/33485/
+- https://github.dreamcupopen.com/video/33484/
+- https://github.dreamcupopen.com/video/33483/
+- https://github.dreamcupopen.com/video/33482/
+- https://github.dreamcupopen.com/video/33481/
+- https://github.dreamcupopen.com/video/33480/
+- https://github.dreamcupopen.com/video/33479/
+- https://github.dreamcupopen.com/video/33478/
+- https://github.dreamcupopen.com/video/33477/
+- https://github.dreamcupopen.com/video/33476/
+- https://github.dreamcupopen.com/video/33475/
+- https://github.dreamcupopen.com/video/33474/
+- https://github.dreamcupopen.com/video/33473/
+- https://github.dreamcupopen.com/video/33472/
+- https://github.dreamcupopen.com/video/33471/
+- https://github.dreamcupopen.com/video/33470/
 - https://github.dreamcupopen.com/video/33469/
 - https://github.dreamcupopen.com/video/33468/
 - https://github.dreamcupopen.com/video/33467/

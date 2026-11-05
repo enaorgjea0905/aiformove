@@ -1,6 +1,26 @@
 
 # 光棍影院 https://www.fuke-com.com
 
+- https://github.fuke-com.com/video/88023/
+- https://github.fuke-com.com/video/88022/
+- https://github.fuke-com.com/video/88021/
+- https://github.fuke-com.com/video/88020/
+- https://github.fuke-com.com/video/88019/
+- https://github.fuke-com.com/video/88018/
+- https://github.fuke-com.com/video/88017/
+- https://github.fuke-com.com/video/88016/
+- https://github.fuke-com.com/video/88015/
+- https://github.fuke-com.com/video/88014/
+- https://github.fuke-com.com/video/88013/
+- https://github.fuke-com.com/video/88012/
+- https://github.fuke-com.com/video/88011/
+- https://github.fuke-com.com/video/88010/
+- https://github.fuke-com.com/video/88009/
+- https://github.fuke-com.com/video/88008/
+- https://github.fuke-com.com/video/88007/
+- https://github.fuke-com.com/video/88006/
+- https://github.fuke-com.com/video/88005/
+- https://github.fuke-com.com/video/88004/
 - https://github.fuke-com.com/video/88003/
 - https://github.fuke-com.com/video/88002/
 - https://github.fuke-com.com/video/88001/

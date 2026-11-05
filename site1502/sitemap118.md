@@ -1,6 +1,26 @@
 
 # 农民影视 https://www.bdet472.com
 
+- https://github.bdet472.com/video/73018/
+- https://github.bdet472.com/video/73017/
+- https://github.bdet472.com/video/73016/
+- https://github.bdet472.com/video/73015/
+- https://github.bdet472.com/video/73014/
+- https://github.bdet472.com/video/73013/
+- https://github.bdet472.com/video/73012/
+- https://github.bdet472.com/video/73011/
+- https://github.bdet472.com/video/73010/
+- https://github.bdet472.com/video/73009/
+- https://github.bdet472.com/video/73008/
+- https://github.bdet472.com/video/73007/
+- https://github.bdet472.com/video/73006/
+- https://github.bdet472.com/video/73005/
+- https://github.bdet472.com/video/73004/
+- https://github.bdet472.com/video/73003/
+- https://github.bdet472.com/video/73002/
+- https://github.bdet472.com/video/73001/
+- https://github.bdet472.com/video/73000/
+- https://github.bdet472.com/video/72999/
 - https://github.bdet472.com/video/72998/
 - https://github.bdet472.com/video/72997/
 - https://github.bdet472.com/video/72996/
@@ -1981,26 +2001,6 @@
 - https://github.bdet472.com/video/71021/
 - https://github.bdet472.com/video/71020/
 - https://github.bdet472.com/video/71019/
-- https://github.bdet472.com/video/71018/
-- https://github.bdet472.com/video/71017/
-- https://github.bdet472.com/video/71016/
-- https://github.bdet472.com/video/71015/
-- https://github.bdet472.com/video/71014/
-- https://github.bdet472.com/video/71013/
-- https://github.bdet472.com/video/71012/
-- https://github.bdet472.com/video/71011/
-- https://github.bdet472.com/video/71010/
-- https://github.bdet472.com/video/71009/
-- https://github.bdet472.com/video/71008/
-- https://github.bdet472.com/video/71007/
-- https://github.bdet472.com/video/71006/
-- https://github.bdet472.com/video/71005/
-- https://github.bdet472.com/video/71004/
-- https://github.bdet472.com/video/71003/
-- https://github.bdet472.com/video/71002/
-- https://github.bdet472.com/video/71001/
-- https://github.bdet472.com/video/71000/
-- https://github.bdet472.com/video/70999/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1502/index.md)

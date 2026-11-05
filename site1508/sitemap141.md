@@ -1,6 +1,26 @@
 
 # 秋霞影院 https://www.haoq10.com
 
+- https://github.haoq10.com/video/96448/
+- https://github.haoq10.com/video/96447/
+- https://github.haoq10.com/video/96446/
+- https://github.haoq10.com/video/96445/
+- https://github.haoq10.com/video/96444/
+- https://github.haoq10.com/video/96443/
+- https://github.haoq10.com/video/96442/
+- https://github.haoq10.com/video/96441/
+- https://github.haoq10.com/video/96440/
+- https://github.haoq10.com/video/96439/
+- https://github.haoq10.com/video/96438/
+- https://github.haoq10.com/video/96437/
+- https://github.haoq10.com/video/96436/
+- https://github.haoq10.com/video/96435/
+- https://github.haoq10.com/video/96434/
+- https://github.haoq10.com/video/96433/
+- https://github.haoq10.com/video/96432/
+- https://github.haoq10.com/video/96431/
+- https://github.haoq10.com/video/96430/
+- https://github.haoq10.com/video/96429/
 - https://github.haoq10.com/video/96428/
 - https://github.haoq10.com/video/96427/
 - https://github.haoq10.com/video/96426/
