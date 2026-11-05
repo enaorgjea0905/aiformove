@@ -1,6 +1,26 @@
 
 # 独播库 https://www.mayoubang.com
 
+- https://github.mayoubang.com/video/72307/
+- https://github.mayoubang.com/video/72306/
+- https://github.mayoubang.com/video/72305/
+- https://github.mayoubang.com/video/72304/
+- https://github.mayoubang.com/video/72303/
+- https://github.mayoubang.com/video/72302/
+- https://github.mayoubang.com/video/72301/
+- https://github.mayoubang.com/video/72300/
+- https://github.mayoubang.com/video/72299/
+- https://github.mayoubang.com/video/72298/
+- https://github.mayoubang.com/video/72297/
+- https://github.mayoubang.com/video/72296/
+- https://github.mayoubang.com/video/72295/
+- https://github.mayoubang.com/video/72294/
+- https://github.mayoubang.com/video/72293/
+- https://github.mayoubang.com/video/72292/
+- https://github.mayoubang.com/video/72291/
+- https://github.mayoubang.com/video/72290/
+- https://github.mayoubang.com/video/72289/
+- https://github.mayoubang.com/video/72288/
 - https://github.mayoubang.com/video/72287/
 - https://github.mayoubang.com/video/72286/
 - https://github.mayoubang.com/video/72285/
@@ -1981,26 +2001,6 @@
 - https://github.mayoubang.com/video/70310/
 - https://github.mayoubang.com/video/70309/
 - https://github.mayoubang.com/video/70308/
-- https://github.mayoubang.com/video/70307/
-- https://github.mayoubang.com/video/70306/
-- https://github.mayoubang.com/video/70305/
-- https://github.mayoubang.com/video/70304/
-- https://github.mayoubang.com/video/70303/
-- https://github.mayoubang.com/video/70302/
-- https://github.mayoubang.com/video/70301/
-- https://github.mayoubang.com/video/70300/
-- https://github.mayoubang.com/video/70299/
-- https://github.mayoubang.com/video/70298/
-- https://github.mayoubang.com/video/70297/
-- https://github.mayoubang.com/video/70296/
-- https://github.mayoubang.com/video/70295/
-- https://github.mayoubang.com/video/70294/
-- https://github.mayoubang.com/video/70293/
-- https://github.mayoubang.com/video/70292/
-- https://github.mayoubang.com/video/70291/
-- https://github.mayoubang.com/video/70290/
-- https://github.mayoubang.com/video/70289/
-- https://github.mayoubang.com/video/70288/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1516/index.md)

@@ -1,6 +1,26 @@
 
 # 策驰影院 https://www.cxsldy.com
 
+- https://github.cxsldy.com/video/34897/
+- https://github.cxsldy.com/video/34896/
+- https://github.cxsldy.com/video/34895/
+- https://github.cxsldy.com/video/34894/
+- https://github.cxsldy.com/video/34893/
+- https://github.cxsldy.com/video/34892/
+- https://github.cxsldy.com/video/34891/
+- https://github.cxsldy.com/video/34890/
+- https://github.cxsldy.com/video/34889/
+- https://github.cxsldy.com/video/34888/
+- https://github.cxsldy.com/video/34887/
+- https://github.cxsldy.com/video/34886/
+- https://github.cxsldy.com/video/34885/
+- https://github.cxsldy.com/video/34884/
+- https://github.cxsldy.com/video/34883/
+- https://github.cxsldy.com/video/34882/
+- https://github.cxsldy.com/video/34881/
+- https://github.cxsldy.com/video/34880/
+- https://github.cxsldy.com/video/34879/
+- https://github.cxsldy.com/video/34878/
 - https://github.cxsldy.com/video/34877/
 - https://github.cxsldy.com/video/34876/
 - https://github.cxsldy.com/video/34875/

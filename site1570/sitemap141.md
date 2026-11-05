@@ -1,6 +1,26 @@
 
 # 天天影视 https://www.bjabedb.com
 
+- https://github.bjabedb.com/video/53478/
+- https://github.bjabedb.com/video/53477/
+- https://github.bjabedb.com/video/53476/
+- https://github.bjabedb.com/video/53475/
+- https://github.bjabedb.com/video/53474/
+- https://github.bjabedb.com/video/53473/
+- https://github.bjabedb.com/video/53472/
+- https://github.bjabedb.com/video/53471/
+- https://github.bjabedb.com/video/53470/
+- https://github.bjabedb.com/video/53469/
+- https://github.bjabedb.com/video/53468/
+- https://github.bjabedb.com/video/53467/
+- https://github.bjabedb.com/video/53466/
+- https://github.bjabedb.com/video/53465/
+- https://github.bjabedb.com/video/53464/
+- https://github.bjabedb.com/video/53463/
+- https://github.bjabedb.com/video/53462/
+- https://github.bjabedb.com/video/53461/
+- https://github.bjabedb.com/video/53460/
+- https://github.bjabedb.com/video/53459/
 - https://github.bjabedb.com/video/53458/
 - https://github.bjabedb.com/video/53457/
 - https://github.bjabedb.com/video/53456/

@@ -1,6 +1,26 @@
 
 # 愤愤电影网 https://www.hphornets.com
 
+- https://github.hphornets.com/video/71722/
+- https://github.hphornets.com/video/71721/
+- https://github.hphornets.com/video/71720/
+- https://github.hphornets.com/video/71719/
+- https://github.hphornets.com/video/71718/
+- https://github.hphornets.com/video/71717/
+- https://github.hphornets.com/video/71716/
+- https://github.hphornets.com/video/71715/
+- https://github.hphornets.com/video/71714/
+- https://github.hphornets.com/video/71713/
+- https://github.hphornets.com/video/71712/
+- https://github.hphornets.com/video/71711/
+- https://github.hphornets.com/video/71710/
+- https://github.hphornets.com/video/71709/
+- https://github.hphornets.com/video/71708/
+- https://github.hphornets.com/video/71707/
+- https://github.hphornets.com/video/71706/
+- https://github.hphornets.com/video/71705/
+- https://github.hphornets.com/video/71704/
+- https://github.hphornets.com/video/71703/
 - https://github.hphornets.com/video/71702/
 - https://github.hphornets.com/video/71701/
 - https://github.hphornets.com/video/71700/

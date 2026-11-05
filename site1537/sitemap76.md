@@ -1,6 +1,26 @@
 
 # 海思追影 https://www.21city.cc
 
+- https://github.21city.cc/video/201026/
+- https://github.21city.cc/video/201025/
+- https://github.21city.cc/video/201024/
+- https://github.21city.cc/video/201023/
+- https://github.21city.cc/video/201022/
+- https://github.21city.cc/video/201021/
+- https://github.21city.cc/video/201020/
+- https://github.21city.cc/video/201019/
+- https://github.21city.cc/video/201018/
+- https://github.21city.cc/video/201017/
+- https://github.21city.cc/video/201016/
+- https://github.21city.cc/video/201015/
+- https://github.21city.cc/video/201014/
+- https://github.21city.cc/video/201013/
+- https://github.21city.cc/video/201012/
+- https://github.21city.cc/video/201011/
+- https://github.21city.cc/video/201010/
+- https://github.21city.cc/video/201009/
+- https://github.21city.cc/video/201008/
+- https://github.21city.cc/video/201007/
 - https://github.21city.cc/video/201006/
 - https://github.21city.cc/video/201005/
 - https://github.21city.cc/video/201004/
@@ -1981,26 +2001,6 @@
 - https://github.21city.cc/video/199029/
 - https://github.21city.cc/video/199028/
 - https://github.21city.cc/video/199027/
-- https://github.21city.cc/video/199026/
-- https://github.21city.cc/video/199025/
-- https://github.21city.cc/video/199024/
-- https://github.21city.cc/video/199023/
-- https://github.21city.cc/video/199022/
-- https://github.21city.cc/video/199021/
-- https://github.21city.cc/video/199020/
-- https://github.21city.cc/video/199019/
-- https://github.21city.cc/video/199018/
-- https://github.21city.cc/video/199017/
-- https://github.21city.cc/video/199016/
-- https://github.21city.cc/video/199015/
-- https://github.21city.cc/video/199014/
-- https://github.21city.cc/video/199013/
-- https://github.21city.cc/video/199012/
-- https://github.21city.cc/video/199011/
-- https://github.21city.cc/video/199010/
-- https://github.21city.cc/video/199009/
-- https://github.21city.cc/video/199008/
-- https://github.21city.cc/video/199007/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1537/index.md)
