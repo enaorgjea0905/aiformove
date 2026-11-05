@@ -1,6 +1,26 @@
 
 # 海思追影 https://www.21city.cc
 
+- https://github.21city.cc/video/71026/
+- https://github.21city.cc/video/71025/
+- https://github.21city.cc/video/71024/
+- https://github.21city.cc/video/71023/
+- https://github.21city.cc/video/71022/
+- https://github.21city.cc/video/71021/
+- https://github.21city.cc/video/71020/
+- https://github.21city.cc/video/71019/
+- https://github.21city.cc/video/71018/
+- https://github.21city.cc/video/71017/
+- https://github.21city.cc/video/71016/
+- https://github.21city.cc/video/71015/
+- https://github.21city.cc/video/71014/
+- https://github.21city.cc/video/71013/
+- https://github.21city.cc/video/71012/
+- https://github.21city.cc/video/71011/
+- https://github.21city.cc/video/71010/
+- https://github.21city.cc/video/71009/
+- https://github.21city.cc/video/71008/
+- https://github.21city.cc/video/71007/
 - https://github.21city.cc/video/71006/
 - https://github.21city.cc/video/71005/
 - https://github.21city.cc/video/71004/

@@ -1,6 +1,26 @@
 
 # 天下影院 https://www.etodu.com
 
+- https://github.etodu.com/video/50095/
+- https://github.etodu.com/video/50094/
+- https://github.etodu.com/video/50093/
+- https://github.etodu.com/video/50092/
+- https://github.etodu.com/video/50091/
+- https://github.etodu.com/video/50090/
+- https://github.etodu.com/video/50089/
+- https://github.etodu.com/video/50088/
+- https://github.etodu.com/video/50087/
+- https://github.etodu.com/video/50086/
+- https://github.etodu.com/video/50085/
+- https://github.etodu.com/video/50084/
+- https://github.etodu.com/video/50083/
+- https://github.etodu.com/video/50082/
+- https://github.etodu.com/video/50081/
+- https://github.etodu.com/video/50080/
+- https://github.etodu.com/video/50079/
+- https://github.etodu.com/video/50078/
+- https://github.etodu.com/video/50077/
+- https://github.etodu.com/video/50076/
 - https://github.etodu.com/video/50075/
 - https://github.etodu.com/video/50074/
 - https://github.etodu.com/video/50073/

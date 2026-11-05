@@ -1,6 +1,26 @@
 
 # 策驰影院 https://www.cotachi.com
 
+- https://github.cotachi.com/video/170719/
+- https://github.cotachi.com/video/170718/
+- https://github.cotachi.com/video/170717/
+- https://github.cotachi.com/video/170716/
+- https://github.cotachi.com/video/170715/
+- https://github.cotachi.com/video/170714/
+- https://github.cotachi.com/video/170713/
+- https://github.cotachi.com/video/170712/
+- https://github.cotachi.com/video/170711/
+- https://github.cotachi.com/video/170710/
+- https://github.cotachi.com/video/170709/
+- https://github.cotachi.com/video/170708/
+- https://github.cotachi.com/video/170707/
+- https://github.cotachi.com/video/170706/
+- https://github.cotachi.com/video/170705/
+- https://github.cotachi.com/video/170704/
+- https://github.cotachi.com/video/170703/
+- https://github.cotachi.com/video/170702/
+- https://github.cotachi.com/video/170701/
+- https://github.cotachi.com/video/170700/
 - https://github.cotachi.com/video/170699/
 - https://github.cotachi.com/video/170698/
 - https://github.cotachi.com/video/170697/
@@ -1981,26 +2001,6 @@
 - https://github.cotachi.com/video/168722/
 - https://github.cotachi.com/video/168721/
 - https://github.cotachi.com/video/168720/
-- https://github.cotachi.com/video/168719/
-- https://github.cotachi.com/video/168718/
-- https://github.cotachi.com/video/168717/
-- https://github.cotachi.com/video/168716/
-- https://github.cotachi.com/video/168715/
-- https://github.cotachi.com/video/168714/
-- https://github.cotachi.com/video/168713/
-- https://github.cotachi.com/video/168712/
-- https://github.cotachi.com/video/168711/
-- https://github.cotachi.com/video/168710/
-- https://github.cotachi.com/video/168709/
-- https://github.cotachi.com/video/168708/
-- https://github.cotachi.com/video/168707/
-- https://github.cotachi.com/video/168706/
-- https://github.cotachi.com/video/168705/
-- https://github.cotachi.com/video/168704/
-- https://github.cotachi.com/video/168703/
-- https://github.cotachi.com/video/168702/
-- https://github.cotachi.com/video/168701/
-- https://github.cotachi.com/video/168700/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1530/index.md)
