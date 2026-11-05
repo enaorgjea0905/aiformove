@@ -1,6 +1,26 @@
 
 # 久久电影网 https://www.hifashionindia.com
 
+- https://github.hifashionindia.com/video/16885/
+- https://github.hifashionindia.com/video/16884/
+- https://github.hifashionindia.com/video/16883/
+- https://github.hifashionindia.com/video/16882/
+- https://github.hifashionindia.com/video/16881/
+- https://github.hifashionindia.com/video/16880/
+- https://github.hifashionindia.com/video/16879/
+- https://github.hifashionindia.com/video/16878/
+- https://github.hifashionindia.com/video/16877/
+- https://github.hifashionindia.com/video/16876/
+- https://github.hifashionindia.com/video/16875/
+- https://github.hifashionindia.com/video/16874/
+- https://github.hifashionindia.com/video/16873/
+- https://github.hifashionindia.com/video/16872/
+- https://github.hifashionindia.com/video/16871/
+- https://github.hifashionindia.com/video/16870/
+- https://github.hifashionindia.com/video/16869/
+- https://github.hifashionindia.com/video/16868/
+- https://github.hifashionindia.com/video/16867/
+- https://github.hifashionindia.com/video/16866/
 - https://github.hifashionindia.com/video/16865/
 - https://github.hifashionindia.com/video/16864/
 - https://github.hifashionindia.com/video/16863/

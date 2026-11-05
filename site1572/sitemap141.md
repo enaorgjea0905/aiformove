@@ -1,6 +1,26 @@
 
 # 大象影视 https://www.numowa.com
 
+- https://github.numowa.com/video/69868/
+- https://github.numowa.com/video/69867/
+- https://github.numowa.com/video/69866/
+- https://github.numowa.com/video/69865/
+- https://github.numowa.com/video/69864/
+- https://github.numowa.com/video/69863/
+- https://github.numowa.com/video/69862/
+- https://github.numowa.com/video/69861/
+- https://github.numowa.com/video/69860/
+- https://github.numowa.com/video/69859/
+- https://github.numowa.com/video/69858/
+- https://github.numowa.com/video/69857/
+- https://github.numowa.com/video/69856/
+- https://github.numowa.com/video/69855/
+- https://github.numowa.com/video/69854/
+- https://github.numowa.com/video/69853/
+- https://github.numowa.com/video/69852/
+- https://github.numowa.com/video/69851/
+- https://github.numowa.com/video/69850/
+- https://github.numowa.com/video/69849/
 - https://github.numowa.com/video/69848/
 - https://github.numowa.com/video/69847/
 - https://github.numowa.com/video/69846/

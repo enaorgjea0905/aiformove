@@ -1,6 +1,26 @@
 
 # 泡泡影视 https://www.fzdz88.com
 
+- https://github.fzdz88.com/video/78688/
+- https://github.fzdz88.com/video/78687/
+- https://github.fzdz88.com/video/78686/
+- https://github.fzdz88.com/video/78685/
+- https://github.fzdz88.com/video/78684/
+- https://github.fzdz88.com/video/78683/
+- https://github.fzdz88.com/video/78682/
+- https://github.fzdz88.com/video/78681/
+- https://github.fzdz88.com/video/78680/
+- https://github.fzdz88.com/video/78679/
+- https://github.fzdz88.com/video/78678/
+- https://github.fzdz88.com/video/78677/
+- https://github.fzdz88.com/video/78676/
+- https://github.fzdz88.com/video/78675/
+- https://github.fzdz88.com/video/78674/
+- https://github.fzdz88.com/video/78673/
+- https://github.fzdz88.com/video/78672/
+- https://github.fzdz88.com/video/78671/
+- https://github.fzdz88.com/video/78670/
+- https://github.fzdz88.com/video/78669/
 - https://github.fzdz88.com/video/78668/
 - https://github.fzdz88.com/video/78667/
 - https://github.fzdz88.com/video/78666/

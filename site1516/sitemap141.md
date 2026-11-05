@@ -1,6 +1,26 @@
 
 # 独播库 https://www.mayoubang.com
 
+- https://github.mayoubang.com/video/44307/
+- https://github.mayoubang.com/video/44306/
+- https://github.mayoubang.com/video/44305/
+- https://github.mayoubang.com/video/44304/
+- https://github.mayoubang.com/video/44303/
+- https://github.mayoubang.com/video/44302/
+- https://github.mayoubang.com/video/44301/
+- https://github.mayoubang.com/video/44300/
+- https://github.mayoubang.com/video/44299/
+- https://github.mayoubang.com/video/44298/
+- https://github.mayoubang.com/video/44297/
+- https://github.mayoubang.com/video/44296/
+- https://github.mayoubang.com/video/44295/
+- https://github.mayoubang.com/video/44294/
+- https://github.mayoubang.com/video/44293/
+- https://github.mayoubang.com/video/44292/
+- https://github.mayoubang.com/video/44291/
+- https://github.mayoubang.com/video/44290/
+- https://github.mayoubang.com/video/44289/
+- https://github.mayoubang.com/video/44288/
 - https://github.mayoubang.com/video/44287/
 - https://github.mayoubang.com/video/44286/
 - https://github.mayoubang.com/video/44285/

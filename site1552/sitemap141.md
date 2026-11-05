@@ -1,6 +1,26 @@
 
 # 360影视 https://www.sdxhwz.com
 
+- https://github.sdxhwz.com/video/43957/
+- https://github.sdxhwz.com/video/43956/
+- https://github.sdxhwz.com/video/43955/
+- https://github.sdxhwz.com/video/43954/
+- https://github.sdxhwz.com/video/43953/
+- https://github.sdxhwz.com/video/43952/
+- https://github.sdxhwz.com/video/43951/
+- https://github.sdxhwz.com/video/43950/
+- https://github.sdxhwz.com/video/43949/
+- https://github.sdxhwz.com/video/43948/
+- https://github.sdxhwz.com/video/43947/
+- https://github.sdxhwz.com/video/43946/
+- https://github.sdxhwz.com/video/43945/
+- https://github.sdxhwz.com/video/43944/
+- https://github.sdxhwz.com/video/43943/
+- https://github.sdxhwz.com/video/43942/
+- https://github.sdxhwz.com/video/43941/
+- https://github.sdxhwz.com/video/43940/
+- https://github.sdxhwz.com/video/43939/
+- https://github.sdxhwz.com/video/43938/
 - https://github.sdxhwz.com/video/43937/
 - https://github.sdxhwz.com/video/43936/
 - https://github.sdxhwz.com/video/43935/

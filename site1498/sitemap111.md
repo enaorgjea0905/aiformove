@@ -1,6 +1,26 @@
 
 # 久久电影网 https://www.fjfybjyy.com
 
+- https://github.fjfybjyy.com/video/72873/
+- https://github.fjfybjyy.com/video/72872/
+- https://github.fjfybjyy.com/video/72871/
+- https://github.fjfybjyy.com/video/72870/
+- https://github.fjfybjyy.com/video/72869/
+- https://github.fjfybjyy.com/video/72868/
+- https://github.fjfybjyy.com/video/72867/
+- https://github.fjfybjyy.com/video/72866/
+- https://github.fjfybjyy.com/video/72865/
+- https://github.fjfybjyy.com/video/72864/
+- https://github.fjfybjyy.com/video/72863/
+- https://github.fjfybjyy.com/video/72862/
+- https://github.fjfybjyy.com/video/72861/
+- https://github.fjfybjyy.com/video/72860/
+- https://github.fjfybjyy.com/video/72859/
+- https://github.fjfybjyy.com/video/72858/
+- https://github.fjfybjyy.com/video/72857/
+- https://github.fjfybjyy.com/video/72856/
+- https://github.fjfybjyy.com/video/72855/
+- https://github.fjfybjyy.com/video/72854/
 - https://github.fjfybjyy.com/video/72853/
 - https://github.fjfybjyy.com/video/72852/
 - https://github.fjfybjyy.com/video/72851/
@@ -1981,26 +2001,6 @@
 - https://github.fjfybjyy.com/video/70876/
 - https://github.fjfybjyy.com/video/70875/
 - https://github.fjfybjyy.com/video/70874/
-- https://github.fjfybjyy.com/video/70873/
-- https://github.fjfybjyy.com/video/70872/
-- https://github.fjfybjyy.com/video/70871/
-- https://github.fjfybjyy.com/video/70870/
-- https://github.fjfybjyy.com/video/70869/
-- https://github.fjfybjyy.com/video/70868/
-- https://github.fjfybjyy.com/video/70867/
-- https://github.fjfybjyy.com/video/70866/
-- https://github.fjfybjyy.com/video/70865/
-- https://github.fjfybjyy.com/video/70864/
-- https://github.fjfybjyy.com/video/70863/
-- https://github.fjfybjyy.com/video/70862/
-- https://github.fjfybjyy.com/video/70861/
-- https://github.fjfybjyy.com/video/70860/
-- https://github.fjfybjyy.com/video/70859/
-- https://github.fjfybjyy.com/video/70858/
-- https://github.fjfybjyy.com/video/70857/
-- https://github.fjfybjyy.com/video/70856/
-- https://github.fjfybjyy.com/video/70855/
-- https://github.fjfybjyy.com/video/70854/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1498/index.md)

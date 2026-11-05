@@ -1,6 +1,26 @@
 
 # 农民影视 https://www.kondfu.com
 
+- https://github.kondfu.com/video/76527/
+- https://github.kondfu.com/video/76526/
+- https://github.kondfu.com/video/76525/
+- https://github.kondfu.com/video/76524/
+- https://github.kondfu.com/video/76523/
+- https://github.kondfu.com/video/76522/
+- https://github.kondfu.com/video/76521/
+- https://github.kondfu.com/video/76520/
+- https://github.kondfu.com/video/76519/
+- https://github.kondfu.com/video/76518/
+- https://github.kondfu.com/video/76517/
+- https://github.kondfu.com/video/76516/
+- https://github.kondfu.com/video/76515/
+- https://github.kondfu.com/video/76514/
+- https://github.kondfu.com/video/76513/
+- https://github.kondfu.com/video/76512/
+- https://github.kondfu.com/video/76511/
+- https://github.kondfu.com/video/76510/
+- https://github.kondfu.com/video/76509/
+- https://github.kondfu.com/video/76508/
 - https://github.kondfu.com/video/76507/
 - https://github.kondfu.com/video/76506/
 - https://github.kondfu.com/video/76505/
