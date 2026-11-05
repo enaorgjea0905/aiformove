@@ -1,6 +1,11 @@
 
 # 首播影院 https://www.xzymyy.com
 
+- https://github.xzymyy.com/video/91698/
+- https://github.xzymyy.com/video/91697/
+- https://github.xzymyy.com/video/91696/
+- https://github.xzymyy.com/video/91695/
+- https://github.xzymyy.com/video/91694/
 - https://github.xzymyy.com/video/91693/
 - https://github.xzymyy.com/video/91692/
 - https://github.xzymyy.com/video/91691/

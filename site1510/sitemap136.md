@@ -1,6 +1,11 @@
 
 # 新视觉影视 https://www.as-go.com
 
+- https://github.as-go.com/video/49931/
+- https://github.as-go.com/video/49930/
+- https://github.as-go.com/video/49929/
+- https://github.as-go.com/video/49928/
+- https://github.as-go.com/video/49927/
 - https://github.as-go.com/video/49926/
 - https://github.as-go.com/video/49925/
 - https://github.as-go.com/video/49924/
@@ -1996,11 +2001,6 @@
 - https://github.as-go.com/video/47934/
 - https://github.as-go.com/video/47933/
 - https://github.as-go.com/video/47932/
-- https://github.as-go.com/video/47931/
-- https://github.as-go.com/video/47930/
-- https://github.as-go.com/video/47929/
-- https://github.as-go.com/video/47928/
-- https://github.as-go.com/video/47927/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1510/index.md)
