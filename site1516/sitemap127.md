@@ -1,6 +1,11 @@
 
 # 独播库 https://www.mayoubang.com
 
+- https://github.mayoubang.com/video/72287/
+- https://github.mayoubang.com/video/72286/
+- https://github.mayoubang.com/video/72285/
+- https://github.mayoubang.com/video/72284/
+- https://github.mayoubang.com/video/72283/
 - https://github.mayoubang.com/video/72282/
 - https://github.mayoubang.com/video/72281/
 - https://github.mayoubang.com/video/72280/
@@ -1996,11 +2001,6 @@
 - https://github.mayoubang.com/video/70290/
 - https://github.mayoubang.com/video/70289/
 - https://github.mayoubang.com/video/70288/
-- https://github.mayoubang.com/video/70287/
-- https://github.mayoubang.com/video/70286/
-- https://github.mayoubang.com/video/70285/
-- https://github.mayoubang.com/video/70284/
-- https://github.mayoubang.com/video/70283/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1516/index.md)

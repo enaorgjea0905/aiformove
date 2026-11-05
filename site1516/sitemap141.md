@@ -1,6 +1,11 @@
 
 # 独播库 https://www.mayoubang.com
 
+- https://github.mayoubang.com/video/44287/
+- https://github.mayoubang.com/video/44286/
+- https://github.mayoubang.com/video/44285/
+- https://github.mayoubang.com/video/44284/
+- https://github.mayoubang.com/video/44283/
 - https://github.mayoubang.com/video/44282/
 - https://github.mayoubang.com/video/44281/
 - https://github.mayoubang.com/video/44280/
