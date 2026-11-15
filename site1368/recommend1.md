@@ -1,0 +1,195 @@
+
+# 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
+
+更新时间：2026-11-15 03:12:34
+
+探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。 https://www.tanmi918.com
+
+## 最新小说
+- 从童星开始[娱乐圈] https://www.tanmi918.com/book/80r4t7j/
+- 天幕向汉武帝直播我造反 https://www.tanmi918.com/book/80r4t7i/
+- 她一个侍女哪懂这个 https://www.tanmi918.com/book/80r4t7h/
+- 捡到少年索隆后 https://www.tanmi918.com/book/80r4t7g/
+- 和直男龙傲天假扮夫妻后 https://www.tanmi918.com/book/80r4t7e/
+- 偿还 https://www.tanmi918.com/book/80r4t7d/
+- 山神的农家乐 https://www.tanmi918.com/book/80r4t7c/
+- 画里春宵共君梦 https://www.tanmi918.com/book/80r4t7b/
+- 女穿男之娶了闺蜜老师 https://www.tanmi918.com/book/80r4t7a/
+- 溺青 https://www.tanmi918.com/book/80r4t79/
+- 别对着我老板流口水！ https://www.tanmi918.com/book/80r4t78/
+- 灭世反派假装我娘亲 https://www.tanmi918.com/book/80r4t77/
+- 穿进漫画了？还好我是bking！ https://www.tanmi918.com/book/80r4t76/
+- 听说我死后很凶 https://www.tanmi918.com/book/80r4t75/
+- 我真没想看奥特战士的特殊CG啊 https://www.tanmi918.com/book/80r4t74/
+- 迹部他超爱的 https://www.tanmi918.com/book/80r4t73/
+- 二婚夫君超勇猛 https://www.tanmi918.com/book/80r4t72/
+- 全网嗑了我和前男友的cp https://www.tanmi918.com/book/80r4t71/
+- 在九零开出租的日子 https://www.tanmi918.com/book/80r4t70/
+- 龙傲天就该被撅 https://www.tanmi918.com/book/80r4t6v/
+- 娶了集团太子爷当老婆 https://www.tanmi918.com/book/80r4t6u/
+- 我，精神病，拒绝五夏修罗场 https://www.tanmi918.com/book/80r4t6t/
+- 神豪系统，但穿回八零 https://www.tanmi918.com/book/80r4t6s/
+- 在立海大和丸井谈恋爱 https://www.tanmi918.com/book/80r4t6q/
+- 鬼杀队最严厉的母亲 https://www.tanmi918.com/book/80r4t6o/
+- 穿厂妹后连夜提桶跑路 https://www.tanmi918.com/book/80r4t6n/
+- 继兄是火葬场男二 https://www.tanmi918.com/book/80r4t6m/
+- 监所人机恋倒计时 https://www.tanmi918.com/book/80r4t6l/
+- 邪神扮演模拟器 https://www.tanmi918.com/book/80r4t6k/
+- 我不可能是帝国元帅 https://www.tanmi918.com/book/80r4t6j/
+- 觊觎姐姐前女友很多年 https://www.tanmi918.com/book/80r4t6i/
+- 新寡被接入王府后 https://www.tanmi918.com/book/80r4t6g/
+- 我爸松田超凶的 https://www.tanmi918.com/book/80r4t6f/
+- Alpha男高扮演网络渣攻 https://www.tanmi918.com/book/80r4t6e/
+- 衔泥燕 https://www.tanmi918.com/book/80r4t6d/
+- 由通房到贵妃娘娘的日常 https://www.tanmi918.com/book/80r4t6c/
+- 恋与上帝之子 https://www.tanmi918.com/book/80r4t6b/
+- 病树枝头 https://www.tanmi918.com/book/80r4t6a/
+- 星际第一能源师 https://www.tanmi918.com/book/80r4t69/
+- 被夺妻之后 https://www.tanmi918.com/book/80r4t68/
+- 豪门大佬养崽手册 https://www.tanmi918.com/book/80r4t67/
+- 徐娘子在皇家佛寺摆摊的日常 https://www.tanmi918.com/book/80r4t66/
+- 六年后夺她入怀 https://www.tanmi918.com/book/80r4t65/
+- 明日新婚［先婚后爱］ https://www.tanmi918.com/book/80r4t64/
+- [综英美]灵媒侦探真人秀 https://www.tanmi918.com/book/80r4t63/
+- 纯情男大穿书恶毒炮灰 https://www.tanmi918.com/book/80r4t62/
+- 最强也会有害怕的事吗？ https://www.tanmi918.com/book/80r4t61/
+- 荒野安全屋囤货求生 https://www.tanmi918.com/book/80r4t60/
+- 雾里京夜[先婚后爱] https://www.tanmi918.com/book/80r4t5v/
+- 世界备忘录 https://www.tanmi918.com/book/80r4t5u/
+- 从菜市场开始 https://www.tanmi918.com/book/80r4t5t/
+- 绝色美人随军躺平日常 https://www.tanmi918.com/book/80r4t5s/
+- 女配选择自己跳崖 https://www.tanmi918.com/book/80r4t5r/
+- 一统忍界也包括迎娶宿敌吗？ https://www.tanmi918.com/book/80r4t5q/
+- 缠珑 https://www.tanmi918.com/book/80r4t5o/
+- 预知梦后，神明亲自下场 https://www.tanmi918.com/book/80r4t5n/
+- 夏夜摇晃 https://www.tanmi918.com/book/80r4t5m/
+- 可我是个疯批 https://www.tanmi918.com/book/80r4t5l/
+- 说谁封建大爹呢（穿越） https://www.tanmi918.com/book/80r4t5k/
+- 不要向魔鬼许愿 https://www.tanmi918.com/book/80r4t5j/
+- 美国传奇女大亨 https://www.tanmi918.com/book/80r4t5i/
+- 状元郎他武德充沛（科举） https://www.tanmi918.com/book/80r4t5h/
+- [综英美]你好我爹是白罐 https://www.tanmi918.com/book/80r4t5g/
+- 小明珠 https://www.tanmi918.com/book/80r4t5f/
+- 拆迁后，全家上了杀猪盘名单 https://www.tanmi918.com/book/80r4t5e/
+- 满级大佬又在迫害宗门 https://www.tanmi918.com/book/80r4t5d/
+- 渣攻他谁也不爱！[快穿] https://www.tanmi918.com/book/80r4t5c/
+- 我直播卖墓地后爆红了 https://www.tanmi918.com/book/80r4t5b/
+- 恶毒女配盘活黄毛老公[九零] https://www.tanmi918.com/book/80r4t5a/
+- 娇气包和前夫一起穿越后 https://www.tanmi918.com/book/80r4t59/
+- 香江第一天师[八零] https://www.tanmi918.com/book/80r4t58/
+- 高门小通房 https://www.tanmi918.com/book/80r4t57/
+- 模拟多次后，竟成了所有人的白月光 https://www.tanmi918.com/book/80r4t55/
+- 放着我来（强取豪夺） https://www.tanmi918.com/book/80r4t54/
+- 回到帝后反目前 https://www.tanmi918.com/book/80r4t53/
+- 普通人穿忍者世界，剧情崩了 https://www.tanmi918.com/book/80r4t51/
+- 即使是龙也要交税 https://www.tanmi918.com/book/80r4t50/
+- 六零重组家庭协议养娃 https://www.tanmi918.com/book/80r4t4v/
+- 琵琶行 https://www.tanmi918.com/book/80r4t4u/
+- 太子疯了怎么办 https://www.tanmi918.com/book/80r4t4t/
+- 当了豪门少爷的家教后 https://www.tanmi918.com/book/80r4t4s/
+- 始乱终弃枭雄后 https://www.tanmi918.com/book/80r4t4r/
+- 小狗也能当家长吗[九零] https://www.tanmi918.com/book/80r4t4q/
+- 她只想继承遗产(穿书) https://www.tanmi918.com/book/80r4t4o/
+- 勇者落选后开启种田面板 https://www.tanmi918.com/book/80r4t4n/
+- 我不要做虫母 https://www.tanmi918.com/book/80r4t4m/
+- 被反派权臣鸡娃的日子 https://www.tanmi918.com/book/80r4t4l/
+- 宋二娘暴富指南 https://www.tanmi918.com/book/80r4t4k/
+- 这个小镇祂活着 https://www.tanmi918.com/book/80r4t4j/
+- [综英美]天与暴君模板加载中 https://www.tanmi918.com/book/80r4t4i/
+- 被天幕曝光谋逆的我送封建老登集体劳改［直播］ https://www.tanmi918.com/book/80r4t4h/
+- 港夜春山 https://www.tanmi918.com/book/80r4t4g/
+- 穿渣A和清冷O先孕后爱 https://www.tanmi918.com/book/80r4t4f/
+- 大小姐在人外限制片靠美貌成神 https://www.tanmi918.com/book/80r4t4e/
+- 对，傍上大佬了！ https://www.tanmi918.com/book/80r4t4d/
+- 明明是路人，却成了西幻反派Boss幼崽期 https://www.tanmi918.com/book/80r4t4c/
+- [足球]真以为名宿好当呢 https://www.tanmi918.com/book/80r4t4b/
+- [综崩铁]两只小浣熊称霸横滨之旅 https://www.tanmi918.com/book/80r4t4a/
+- 退婚第一年，她另嫁他人 https://www.tanmi918.com/book/80r4t49/
+- 天灾逃荒，绑定求生系统 https://www.tanmi918.com/book/80r4t48/
+- 冷脸萌主攻手的万人迷指南 https://www.tanmi918.com/book/80r4t47/
+- 九鼎 https://www.tanmi918.com/book/80r4t46/
+- 妻子她非人类 https://www.tanmi918.com/book/80r4t45/
+- ［综英美］蝙蝠家旁的好好先生 https://www.tanmi918.com/book/80r4t44/
+- 和港城大小姐先婚后爱了 https://www.tanmi918.com/book/80r4t42/
+- 笨蛋美人主动和亲后 https://www.tanmi918.com/book/80r4t3o/
+- 黎明协奏曲 https://www.tanmi918.com/book/80r4t1f/
+- 她柔弱不能自理 https://www.tanmi918.com/book/80r4t1a/
+- 逆袭系统早来了十年后 https://www.tanmi918.com/book/80r4stn/
+- 易孕直男虫母求生日记 https://www.tanmi918.com/book/80r4ssp/
+- 小虫的不正当职业 https://www.tanmi918.com/book/80r4ssb/
+- 揣崽丧夫后被情敌强娶了 https://www.tanmi918.com/book/80r4ss0/
+- 在年代文里跑运输 https://www.tanmi918.com/book/80r4sqd/
+- 魔法种田，从退队经营农场开始 https://www.tanmi918.com/book/80r4spo/
+- 开局外挂：对神明强取豪夺 [赛诗会作品] https://www.tanmi918.com/book/80r4nv9/
+- 今天还不可以造反吗？？？ https://www.tanmi918.com/book/80r4apa/
+- 只好斗到底了 https://www.tanmi918.com/book/80r45j8/
+- 九零重组小家庭 https://www.tanmi918.com/book/80r453p/
+- [足球]足坛人生模拟器 https://www.tanmi918.com/book/80r4493/
+- 从维多利亚时代开始 https://www.tanmi918.com/book/80r3mpu/
+- 在鬼怪世界当黄大仙的日子 https://www.tanmi918.com/book/80r3l6b/
+- 网球！超级巨星[竞技] https://www.tanmi918.com/book/80r3htr/
+- 冥王陛下今天睡醒了吗[综英美] https://www.tanmi918.com/book/80r3h0u/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.tanmi918.com/book/80r3h04/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.tanmi918.com/book/80r3a1i/
+- [斗罗]你已有取死之道 https://www.tanmi918.com/book/80r2rbq/
+- 失而复得的白月光[快穿] https://www.tanmi918.com/book/80r2q39/
+- 这不是乙女游戏吗 https://www.tanmi918.com/book/80r2nut/
+- 我们不是Cool 1吗 https://www.tanmi918.com/book/80r2n0g/
+- 魔尊被迫变成幼崽后[快穿] https://www.tanmi918.com/book/80r2ka8/
+- [综英美]阿哈非说我是祂亲生的 https://www.tanmi918.com/book/80r2ivi/
+- 可怜的天然呆直男[快穿] https://www.tanmi918.com/book/80r2epn/
+- 我不可能舔一个漂亮捞子 https://www.tanmi918.com/book/80r2e47/
+- 她生而为赢[无限] https://www.tanmi918.com/book/80r2cgr/
+- 我能看到罪案记录［九零］ https://www.tanmi918.com/book/80r27hl/
+- [全职高手]霸图老板是叶修 https://www.tanmi918.com/book/80r24nf/
+- 小掌门之快穿大乱斗 https://www.tanmi918.com/book/80r24hv/
+- 韩团绿卡不想忍了 https://www.tanmi918.com/book/80r23r1/
+- 养成游戏，但破解版 https://www.tanmi918.com/book/80r1vvd/
+- 五十年代童养媳 https://www.tanmi918.com/book/80r1tvr/
+- 被小蜘蛛听见心声后 https://www.tanmi918.com/book/80r1m25/
+- 穿成渣A后爱上她老婆 https://www.tanmi918.com/book/80r1jkq/
+- 拨云见轻燕 https://www.tanmi918.com/book/80r1iem/
+- 酒厂克系兄妹情 https://www.tanmi918.com/book/80r1cmg/
+- 被5T5养大的禅院惠 https://www.tanmi918.com/book/80r1bon/
+- 替身游戏 https://www.tanmi918.com/book/80r1bo6/
+- 至尊法师克拉克[综英美] https://www.tanmi918.com/book/80r1b65/
+- 人偶崽崽也要做审神者吗 https://www.tanmi918.com/book/80r17dj/
+- 我靠写文在虫族成了救世主 https://www.tanmi918.com/book/80r0m8g/
+- 耕种者，但种田游戏[诡秘之主] https://www.tanmi918.com/book/80r0fts/
+- 反派他为何如此凶残 https://www.tanmi918.com/book/80r08p1/
+- 说好当小厮咋成了养夫郎？ https://www.tanmi918.com/book/80r08ou/
+- 恶毒女配超恶毒 https://www.tanmi918.com/book/80r08gu/
+- [全职高手]在夺冠之路上轮回 https://www.tanmi918.com/book/80r071h/
+- 大佬们排队要做我爹 https://www.tanmi918.com/book/80r06sq/
+- 我在西幻开酒店 https://www.tanmi918.com/book/80r06km/
+- 我的钓场是钓鱼佬的朝圣地 https://www.tanmi918.com/book/80r06cp/
+- 五十年代港城日常 https://www.tanmi918.com/book/80qvbhn/
+- 我是唯一地上神国 [赛诗会作品] https://www.tanmi918.com/book/80qvasd/
+- 全民求生:从小木屋到魔法农场 https://www.tanmi918.com/book/80qvaqb/
+- 都说了我是在当炮灰[快穿] https://www.tanmi918.com/book/80qvam9/
+- 成为养成系练习生后 https://www.tanmi918.com/book/80qvahi/
+- 不知蝴蝶远 https://www.tanmi918.com/book/80qvafh/
+- 大瑛弟国 https://www.tanmi918.com/book/80qv9e7/
+- 我有一座安全城 [赛诗会作品] https://www.tanmi918.com/book/80qv94d/
+- [娱乐圈]过分美丽的她 https://www.tanmi918.com/book/80qv8tp/
+- 海岛求生：生活玩家种田囤货 https://www.tanmi918.com/book/80qv8pq/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1368/index.md)
+- [最新热点小说](/site1368/newhot.md)
+- [人气小说](/site1368/b111.md)
+- [推荐小说](/site1368/recommend1.md)
+- [推荐小说列表](/site1368/recommend/index.md)
+- [热点小说](/site1368/hot/index.md)
+- [全本小说](/site1368/quanben/index.md)
+- [网站地图](/site1368/sitemap/index.md)
+- [标签](/site1368/tag/index.md)
+- [爱情小说](/site1368/category101/index.md)
+- [武侠小说](/site1368/category102/index.md)
+- [奇幻小说](/site1368/category103/index.md)
+- [仙侠小说](/site1368/category104/index.md)
+- [游戏小说](/site1368/category105/index.md)
+- [传奇小说](/site1368/category106/index.md)
+- [科幻小说](/site1368/category107/index.md)
+- [惊悚小说](/site1368/category109/index.md)
+- [悬疑小说](/site1368/category110/index.md)
