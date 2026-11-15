@@ -1,0 +1,195 @@
+
+# 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
+
+更新时间：2026-11-15 03:08:12
+
+看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。 https://www.kanshu666.com
+
+## 最新小说
+- 龙傲天就该被撅 https://www.kanshu666.com/book/8jv7iss/
+- 偿还 https://www.kanshu666.com/book/8jv7isr/
+- 雾里京夜[先婚后爱] https://www.kanshu666.com/book/8jv7isq/
+- 放着我来（强取豪夺） https://www.kanshu666.com/book/8jv7isp/
+- 听说我死后很凶 https://www.kanshu666.com/book/8jv7iso/
+- 病树枝头 https://www.kanshu666.com/book/8jv7isn/
+- 高门小通房 https://www.kanshu666.com/book/8jv7ism/
+- 恋与上帝之子 https://www.kanshu666.com/book/8jv7isl/
+- 从童星开始[娱乐圈] https://www.kanshu666.com/book/8jv7isk/
+- 捡到少年索隆后 https://www.kanshu666.com/book/8jv7isj/
+- 在九零开出租的日子 https://www.kanshu666.com/book/8jv7isi/
+- 在立海大和丸井谈恋爱 https://www.kanshu666.com/book/8jv7ish/
+- 荒野安全屋囤货求生 https://www.kanshu666.com/book/8jv7ise/
+- 六年后夺她入怀 https://www.kanshu666.com/book/8jv7isd/
+- 画里春宵共君梦 https://www.kanshu666.com/book/8jv7isc/
+- 被反派权臣鸡娃的日子 https://www.kanshu666.com/book/8jv7isb/
+- 即使是龙也要交税 https://www.kanshu666.com/book/8jv7isa/
+- 小狗也能当家长吗[九零] https://www.kanshu666.com/book/8jv7is9/
+- Alpha男高扮演网络渣攻 https://www.kanshu666.com/book/8jv7is7/
+- 明日新婚［先婚后爱］ https://www.kanshu666.com/book/8jv7is6/
+- [综英美]你好我爹是白罐 https://www.kanshu666.com/book/8jv7is5/
+- 徐娘子在皇家佛寺摆摊的日常 https://www.kanshu666.com/book/8jv7is2/
+- 我不可能是帝国元帅 https://www.kanshu666.com/book/8jv7is1/
+- 这个小镇祂活着 https://www.kanshu666.com/book/8jv7is0/
+- 宋二娘暴富指南 https://www.kanshu666.com/book/8jv7irv/
+- 别对着我老板流口水！ https://www.kanshu666.com/book/8jv7iru/
+- 新寡被接入王府后 https://www.kanshu666.com/book/8jv7irt/
+- 娇气包和前夫一起穿越后 https://www.kanshu666.com/book/8jv7irs/
+- 世界备忘录 https://www.kanshu666.com/book/8jv7irr/
+- 衔泥燕 https://www.kanshu666.com/book/8jv7irq/
+- 穿厂妹后连夜提桶跑路 https://www.kanshu666.com/book/8jv7irp/
+- 我直播卖墓地后爆红了 https://www.kanshu666.com/book/8jv7iro/
+- 鬼杀队最严厉的母亲 https://www.kanshu666.com/book/8jv7irn/
+- 穿进漫画了？还好我是bking！ https://www.kanshu666.com/book/8jv7irm/
+- 豪门大佬养崽手册 https://www.kanshu666.com/book/8jv7irl/
+- 继兄是火葬场男二 https://www.kanshu666.com/book/8jv7irk/
+- 神豪系统，但穿回八零 https://www.kanshu666.com/book/8jv7irj/
+- 监所人机恋倒计时 https://www.kanshu666.com/book/8jv7irh/
+- 我不要做虫母 https://www.kanshu666.com/book/8jv7irg/
+- 夏夜摇晃 https://www.kanshu666.com/book/8jv7irf/
+- 邪神扮演模拟器 https://www.kanshu666.com/book/8jv7ire/
+- 模拟多次后，竟成了所有人的白月光 https://www.kanshu666.com/book/8jv7ird/
+- 山神的农家乐 https://www.kanshu666.com/book/8jv7irc/
+- 回到帝后反目前 https://www.kanshu666.com/book/8jv7irb/
+- 不要向魔鬼许愿 https://www.kanshu666.com/book/8jv7ira/
+- 一统忍界也包括迎娶宿敌吗？ https://www.kanshu666.com/book/8jv7ir9/
+- 从菜市场开始 https://www.kanshu666.com/book/8jv7ir8/
+- 太子疯了怎么办 https://www.kanshu666.com/book/8jv7ir7/
+- 二婚夫君超勇猛 https://www.kanshu666.com/book/8jv7ir6/
+- 勇者落选后开启种田面板 https://www.kanshu666.com/book/8jv7ir5/
+- 满级大佬又在迫害宗门 https://www.kanshu666.com/book/8jv7ir4/
+- 娶了集团太子爷当老婆 https://www.kanshu666.com/book/8jv7ir1/
+- 她一个侍女哪懂这个 https://www.kanshu666.com/book/8jv7ir0/
+- 普通人穿忍者世界，剧情崩了 https://www.kanshu666.com/book/8jv7iqv/
+- 我爸松田超凶的 https://www.kanshu666.com/book/8jv7iqu/
+- 全网嗑了我和前男友的cp https://www.kanshu666.com/book/8jv7iqt/
+- 拆迁后，全家上了杀猪盘名单 https://www.kanshu666.com/book/8jv7iqs/
+- 星际第一能源师 https://www.kanshu666.com/book/8jv7iqr/
+- 状元郎他武德充沛（科举） https://www.kanshu666.com/book/8jv7iqq/
+- 她只想继承遗产(穿书) https://www.kanshu666.com/book/8jv7iqp/
+- 女穿男之娶了闺蜜老师 https://www.kanshu666.com/book/8jv7iqo/
+- 女配选择自己跳崖 https://www.kanshu666.com/book/8jv7iqn/
+- 被夺妻之后 https://www.kanshu666.com/book/8jv7iqm/
+- 美国传奇女大亨 https://www.kanshu666.com/book/8jv7iql/
+- 溺青 https://www.kanshu666.com/book/8jv7iqk/
+- 我真没想看奥特战士的特殊CG啊 https://www.kanshu666.com/book/8jv7iqj/
+- 和直男龙傲天假扮夫妻后 https://www.kanshu666.com/book/8jv7iqi/
+- 预知梦后，神明亲自下场 https://www.kanshu666.com/book/8jv7iqh/
+- [综英美]灵媒侦探真人秀 https://www.kanshu666.com/book/8jv7iqg/
+- 六零重组家庭协议养娃 https://www.kanshu666.com/book/8jv7iqf/
+- 渣攻他谁也不爱！[快穿] https://www.kanshu666.com/book/8jv7iqe/
+- 说谁封建大爹呢（穿越） https://www.kanshu666.com/book/8jv7iqd/
+- 由通房到贵妃娘娘的日常 https://www.kanshu666.com/book/8jv7iqc/
+- 缠珑 https://www.kanshu666.com/book/8jv7iqb/
+- 最强也会有害怕的事吗？ https://www.kanshu666.com/book/8jv7iqa/
+- 天幕向汉武帝直播我造反 https://www.kanshu666.com/book/8jv7iq9/
+- 灭世反派假装我娘亲 https://www.kanshu666.com/book/8jv7iq8/
+- 小明珠 https://www.kanshu666.com/book/8jv7iq7/
+- 迹部他超爱的 https://www.kanshu666.com/book/8jv7iq6/
+- 恶毒女配盘活黄毛老公[九零] https://www.kanshu666.com/book/8jv7iq5/
+- 绝色美人随军躺平日常 https://www.kanshu666.com/book/8jv7iq4/
+- 当了豪门少爷的家教后 https://www.kanshu666.com/book/8jv7iq3/
+- 觊觎姐姐前女友很多年 https://www.kanshu666.com/book/8jv7iq2/
+- 我，精神病，拒绝五夏修罗场 https://www.kanshu666.com/book/8jv7iq1/
+- 始乱终弃枭雄后 https://www.kanshu666.com/book/8jv7iq0/
+- 可我是个疯批 https://www.kanshu666.com/book/8jv7ipv/
+- 纯情男大穿书恶毒炮灰 https://www.kanshu666.com/book/8jv7ipu/
+- 琵琶行 https://www.kanshu666.com/book/8jv7ipt/
+- 香江第一天师[八零] https://www.kanshu666.com/book/8jv7ips/
+- 穿渣A和清冷O先孕后爱 https://www.kanshu666.com/book/8jv7ipq/
+- [足球]真以为名宿好当呢 https://www.kanshu666.com/book/8jv7ipp/
+- 退婚第一年，她另嫁他人 https://www.kanshu666.com/book/8jv7ipo/
+- 港夜春山 https://www.kanshu666.com/book/8jv7ipn/
+- 人偶崽崽也要做审神者吗 https://www.kanshu666.com/book/8jv7ipm/
+- 妻子她非人类 https://www.kanshu666.com/book/8jv7ipl/
+- 九鼎 https://www.kanshu666.com/book/8jv7ipk/
+- 冷脸萌主攻手的万人迷指南 https://www.kanshu666.com/book/8jv7ipj/
+- 我的钓场是钓鱼佬的朝圣地 https://www.kanshu666.com/book/8jv7ipi/
+- [综崩铁]两只小浣熊称霸横滨之旅 https://www.kanshu666.com/book/8jv7iph/
+- 我不可能舔一个漂亮捞子 https://www.kanshu666.com/book/8jv7ipg/
+- 对，傍上大佬了！ https://www.kanshu666.com/book/8jv7ipf/
+- 大小姐在人外限制片靠美貌成神 https://www.kanshu666.com/book/8jv7ipe/
+- 和港城大小姐先婚后爱了 https://www.kanshu666.com/book/8jv7ipd/
+- ［综英美］蝙蝠家旁的好好先生 https://www.kanshu666.com/book/8jv7ipc/
+- 被天幕曝光谋逆的我送封建老登集体劳改［直播］ https://www.kanshu666.com/book/8jv7ipb/
+- [综英美]天与暴君模板加载中 https://www.kanshu666.com/book/8jv7ipa/
+- 大佬们排队要做我爹 https://www.kanshu666.com/book/8jv7ip9/
+- 天灾逃荒，绑定求生系统 https://www.kanshu666.com/book/8jv7ip8/
+- 说好当小厮咋成了养夫郎？ https://www.kanshu666.com/book/8jv7ip7/
+- 明明是路人，却成了西幻反派Boss幼崽期 https://www.kanshu666.com/book/8jv7ip6/
+- 笨蛋美人主动和亲后 https://www.kanshu666.com/book/8jv7ins/
+- 她柔弱不能自理 https://www.kanshu666.com/book/8jv7in6/
+- 黎明协奏曲 https://www.kanshu666.com/book/8jv7imr/
+- 小虫的不正当职业 https://www.kanshu666.com/book/8jv7im5/
+- 我在西幻开酒店 https://www.kanshu666.com/book/8jv7ilt/
+- 被小蜘蛛听见心声后 https://www.kanshu666.com/book/8jv7ilr/
+- 易孕直男虫母求生日记 https://www.kanshu666.com/book/8jv7ik9/
+- 可怜的天然呆直男[快穿] https://www.kanshu666.com/book/8jv7ihv/
+- 逆袭系统早来了十年后 https://www.kanshu666.com/book/8jv7ih0/
+- 揣崽丧夫后被情敌强娶了 https://www.kanshu666.com/book/8jv7ign/
+- 魔法种田，从退队经营农场开始 https://www.kanshu666.com/book/8jv7ieq/
+- 在年代文里跑运输 https://www.kanshu666.com/book/8jv7ien/
+- 失而复得的白月光[快穿] https://www.kanshu666.com/book/8jv7i9g/
+- 冥王陛下今天睡醒了吗[综英美] https://www.kanshu666.com/book/8jv7i8k/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.kanshu666.com/book/8jv7i8g/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.kanshu666.com/book/8jv7i6h/
+- 五十年代童养媳 https://www.kanshu666.com/book/8jv7gq4/
+- 九零重组小家庭 https://www.kanshu666.com/book/8jv5trc/
+- 只好斗到底了 https://www.kanshu666.com/book/8jv5q8o/
+- [足球]足坛人生模拟器 https://www.kanshu666.com/book/8jv5hh2/
+- 从维多利亚时代开始 https://www.kanshu666.com/book/8jv57v9/
+- 网球！超级巨星[竞技] https://www.kanshu666.com/book/8jv5391/
+- 都说了我是在当炮灰[快穿] https://www.kanshu666.com/book/8jv4os6/
+- 开局外挂：对神明强取豪夺 [赛诗会作品] https://www.kanshu666.com/book/8jv4fgg/
+- 今天还不可以造反吗？？？ https://www.kanshu666.com/book/8jv4evs/
+- [斗罗]你已有取死之道 https://www.kanshu666.com/book/8jv4861/
+- 这不是乙女游戏吗 https://www.kanshu666.com/book/8jv45oa/
+- 我们不是Cool 1吗 https://www.kanshu666.com/book/8jv437m/
+- 不知蝴蝶远 https://www.kanshu666.com/book/8jv420q/
+- [综英美]阿哈非说我是祂亲生的 https://www.kanshu666.com/book/8jv3vql/
+- 她生而为赢[无限] https://www.kanshu666.com/book/8jv3rbg/
+- 我能看到罪案记录［九零］ https://www.kanshu666.com/book/rj65u6/
+- [全职高手]霸图老板是叶修 https://www.kanshu666.com/book/rj64hh/
+- 小掌门之快穿大乱斗 https://www.kanshu666.com/book/rj62u5/
+- 养成游戏，但破解版 https://www.kanshu666.com/book/rj5unq/
+- 成为养成系练习生后 https://www.kanshu666.com/book/rj5tnq/
+- 拨云见轻燕 https://www.kanshu666.com/book/rj5iad/
+- 穿成渣A后爱上她老婆 https://www.kanshu666.com/book/rj5h43/
+- 酒厂克系兄妹情 https://www.kanshu666.com/book/rj5cgn/
+- 被5T5养大的禅院惠 https://www.kanshu666.com/book/rj59kq/
+- 替身游戏 https://www.kanshu666.com/book/rj58ra/
+- 至尊法师克拉克[综英美] https://www.kanshu666.com/book/rj5695/
+- 韩团绿卡不想忍了 https://www.kanshu666.com/book/rj4luk/
+- 我靠写文在虫族成了救世主 https://www.kanshu666.com/book/rj4jvn/
+- 耕种者，但种田游戏[诡秘之主] https://www.kanshu666.com/book/rj4e6p/
+- [全职高手]在夺冠之路上轮回 https://www.kanshu666.com/book/rj489e/
+- 反派他为何如此凶残 https://www.kanshu666.com/book/rj47gd/
+- 恶毒女配超恶毒 https://www.kanshu666.com/book/rj472n/
+- 我有一座安全城 [赛诗会作品] https://www.kanshu666.com/book/2oa0r5/
+- 魔尊被迫变成幼崽后[快穿] https://www.kanshu666.com/book/2oa0d3/
+- [娱乐圈]过分美丽的她 https://www.kanshu666.com/book/2o9vnb/
+- 五十年代港城日常 https://www.kanshu666.com/book/2o9v0t/
+- 海岛求生：生活玩家种田囤货 https://www.kanshu666.com/book/8qjmi/
+- 我是唯一地上神国 [赛诗会作品] https://www.kanshu666.com/book/8qji6/
+- 全民求生:从小木屋到魔法农场 https://www.kanshu666.com/book/8qjbt/
+- 在鬼怪世界当黄大仙的日子 https://www.kanshu666.com/book/8qj8a/
+- 大瑛弟国 https://www.kanshu666.com/book/s8bn/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1319/index.md)
+- [最新热点小说](/site1319/newhot.md)
+- [人气小说](/site1319/b111.md)
+- [推荐小说](/site1319/recommend1.md)
+- [推荐小说列表](/site1319/recommend/index.md)
+- [热点小说](/site1319/hot/index.md)
+- [全本小说](/site1319/quanben/index.md)
+- [网站地图](/site1319/sitemap/index.md)
+- [标签](/site1319/tag/index.md)
+- [爱情小说](/site1319/category101/index.md)
+- [武侠小说](/site1319/category102/index.md)
+- [奇幻小说](/site1319/category103/index.md)
+- [仙侠小说](/site1319/category104/index.md)
+- [游戏小说](/site1319/category105/index.md)
+- [传奇小说](/site1319/category106/index.md)
+- [科幻小说](/site1319/category107/index.md)
+- [惊悚小说](/site1319/category109/index.md)
+- [悬疑小说](/site1319/category110/index.md)
