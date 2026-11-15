@@ -1,0 +1,195 @@
+
+# 都来读小说网 - 免费电子书阅读平台
+
+更新时间：2026-11-15 03:12:18
+
+都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。 https://www.swazs.com
+
+## 最新小说
+- 满级大佬又在迫害宗门 https://www.swazs.com/book/1u7l46v/
+- 始乱终弃枭雄后 https://www.swazs.com/book/1u7l46u/
+- 预知梦后，神明亲自下场 https://www.swazs.com/book/1u7l46t/
+- 捡到少年索隆后 https://www.swazs.com/book/1u7l46s/
+- 我不要做虫母 https://www.swazs.com/book/1u7l46r/
+- 美国传奇女大亨 https://www.swazs.com/book/1u7l46q/
+- 穿厂妹后连夜提桶跑路 https://www.swazs.com/book/1u7l46p/
+- 觊觎姐姐前女友很多年 https://www.swazs.com/book/1u7l46o/
+- 当了豪门少爷的家教后 https://www.swazs.com/book/1u7l46n/
+- 可我是个疯批 https://www.swazs.com/book/1u7l46l/
+- Alpha男高扮演网络渣攻 https://www.swazs.com/book/1u7l46k/
+- 琵琶行 https://www.swazs.com/book/1u7l46j/
+- 小明珠 https://www.swazs.com/book/1u7l46h/
+- 鬼杀队最严厉的母亲 https://www.swazs.com/book/1u7l46g/
+- 二婚夫君超勇猛 https://www.swazs.com/book/1u7l46f/
+- 女配选择自己跳崖 https://www.swazs.com/book/1u7l46d/
+- 回到帝后反目前 https://www.swazs.com/book/1u7l46c/
+- [综英美]你好我爹是白罐 https://www.swazs.com/book/1u7l46b/
+- 恶毒女配盘活黄毛老公[九零] https://www.swazs.com/book/1u7l46a/
+- 放着我来（强取豪夺） https://www.swazs.com/book/1u7l469/
+- 天幕向汉武帝直播我造反 https://www.swazs.com/book/1u7l468/
+- 雾里京夜[先婚后爱] https://www.swazs.com/book/1u7l467/
+- 女穿男之娶了闺蜜老师 https://www.swazs.com/book/1u7l466/
+- 继兄是火葬场男二 https://www.swazs.com/book/1u7l465/
+- 从童星开始[娱乐圈] https://www.swazs.com/book/1u7l464/
+- 太子疯了怎么办 https://www.swazs.com/book/1u7l463/
+- 星际第一能源师 https://www.swazs.com/book/1u7l462/
+- 拆迁后，全家上了杀猪盘名单 https://www.swazs.com/book/1u7l461/
+- 她一个侍女哪懂这个 https://www.swazs.com/book/1u7l460/
+- 这个小镇祂活着 https://www.swazs.com/book/1u7l45v/
+- 绝色美人随军躺平日常 https://www.swazs.com/book/1u7l45u/
+- 穿进漫画了？还好我是bking！ https://www.swazs.com/book/1u7l45t/
+- 一统忍界也包括迎娶宿敌吗？ https://www.swazs.com/book/1u7l45s/
+- 在立海大和丸井谈恋爱 https://www.swazs.com/book/1u7l45r/
+- 状元郎他武德充沛（科举） https://www.swazs.com/book/1u7l45q/
+- [综英美]灵媒侦探真人秀 https://www.swazs.com/book/1u7l45p/
+- 被反派权臣鸡娃的日子 https://www.swazs.com/book/1u7l45n/
+- 龙傲天就该被撅 https://www.swazs.com/book/1u7l45l/
+- 缠珑 https://www.swazs.com/book/1u7l45k/
+- 神豪系统，但穿回八零 https://www.swazs.com/book/1u7l45i/
+- 我，精神病，拒绝五夏修罗场 https://www.swazs.com/book/1u7l45h/
+- 山神的农家乐 https://www.swazs.com/book/1u7l45g/
+- 从菜市场开始 https://www.swazs.com/book/1u7l45f/
+- 娇气包和前夫一起穿越后 https://www.swazs.com/book/1u7l45e/
+- 娶了集团太子爷当老婆 https://www.swazs.com/book/1u7l45d/
+- 纯情男大穿书恶毒炮灰 https://www.swazs.com/book/1u7l45c/
+- 六年后夺她入怀 https://www.swazs.com/book/1u7l45b/
+- 小狗也能当家长吗[九零] https://www.swazs.com/book/1u7l45a/
+- 明日新婚［先婚后爱］ https://www.swazs.com/book/1u7l458/
+- 由通房到贵妃娘娘的日常 https://www.swazs.com/book/1u7l457/
+- 恋与上帝之子 https://www.swazs.com/book/1u7l456/
+- 豪门大佬养崽手册 https://www.swazs.com/book/1u7l455/
+- 我直播卖墓地后爆红了 https://www.swazs.com/book/1u7l454/
+- 高门小通房 https://www.swazs.com/book/1u7l453/
+- 我真没想看奥特战士的特殊CG啊 https://www.swazs.com/book/1u7l452/
+- 在九零开出租的日子 https://www.swazs.com/book/1u7l451/
+- 画里春宵共君梦 https://www.swazs.com/book/1u7l450/
+- 迹部他超爱的 https://www.swazs.com/book/1u7l44v/
+- 溺青 https://www.swazs.com/book/1u7l44u/
+- 和直男龙傲天假扮夫妻后 https://www.swazs.com/book/1u7l44t/
+- 灭世反派假装我娘亲 https://www.swazs.com/book/1u7l44s/
+- 最强也会有害怕的事吗？ https://www.swazs.com/book/1u7l44r/
+- 说谁封建大爹呢（穿越） https://www.swazs.com/book/1u7l44q/
+- 徐娘子在皇家佛寺摆摊的日常 https://www.swazs.com/book/1u7l44p/
+- 别对着我老板流口水！ https://www.swazs.com/book/1u7l44o/
+- 监所人机恋倒计时 https://www.swazs.com/book/1u7l44n/
+- 世界备忘录 https://www.swazs.com/book/1u7l44m/
+- 模拟多次后，竟成了所有人的白月光 https://www.swazs.com/book/1u7l44l/
+- 她只想继承遗产(穿书) https://www.swazs.com/book/1u7l44k/
+- 夏夜摇晃 https://www.swazs.com/book/1u7l44j/
+- 病树枝头 https://www.swazs.com/book/1u7l44i/
+- 荒野安全屋囤货求生 https://www.swazs.com/book/1u7l44g/
+- 宋二娘暴富指南 https://www.swazs.com/book/1u7l44f/
+- 不要向魔鬼许愿 https://www.swazs.com/book/1u7l44e/
+- 六零重组家庭协议养娃 https://www.swazs.com/book/1u7l44d/
+- 衔泥燕 https://www.swazs.com/book/1u7l44c/
+- 香江第一天师[八零] https://www.swazs.com/book/1u7l44b/
+- 听说我死后很凶 https://www.swazs.com/book/1u7l44a/
+- 即使是龙也要交税 https://www.swazs.com/book/1u7l449/
+- 我不可能是帝国元帅 https://www.swazs.com/book/1u7l448/
+- 偿还 https://www.swazs.com/book/1u7l447/
+- 新寡被接入王府后 https://www.swazs.com/book/1u7l446/
+- 全网嗑了我和前男友的cp https://www.swazs.com/book/1u7l445/
+- 渣攻他谁也不爱！[快穿] https://www.swazs.com/book/1u7l444/
+- 普通人穿忍者世界，剧情崩了 https://www.swazs.com/book/1u7l443/
+- 被夺妻之后 https://www.swazs.com/book/1u7l442/
+- 邪神扮演模拟器 https://www.swazs.com/book/1u7l441/
+- 勇者落选后开启种田面板 https://www.swazs.com/book/1u7l440/
+- 我爸松田超凶的 https://www.swazs.com/book/1u7l43v/
+- 冷脸萌主攻手的万人迷指南 https://www.swazs.com/book/1u7l43u/
+- ［综英美］蝙蝠家旁的好好先生 https://www.swazs.com/book/1u7l43t/
+- 被天幕曝光谋逆的我送封建老登集体劳改［直播］ https://www.swazs.com/book/1u7l43r/
+- 退婚第一年，她另嫁他人 https://www.swazs.com/book/1u7l43q/
+- [综英美]天与暴君模板加载中 https://www.swazs.com/book/1u7l43p/
+- 妻子她非人类 https://www.swazs.com/book/1u7l43o/
+- 大小姐在人外限制片靠美貌成神 https://www.swazs.com/book/1u7l43n/
+- 穿渣A和清冷O先孕后爱 https://www.swazs.com/book/1u7l43m/
+- [足球]真以为名宿好当呢 https://www.swazs.com/book/1u7l43l/
+- 港夜春山 https://www.swazs.com/book/1u7l43k/
+- [综崩铁]两只小浣熊称霸横滨之旅 https://www.swazs.com/book/1u7l43j/
+- 九鼎 https://www.swazs.com/book/1u7l43i/
+- 对，傍上大佬了！ https://www.swazs.com/book/1u7l43h/
+- 她柔弱不能自理 https://www.swazs.com/book/1u7l432/
+- 笨蛋美人主动和亲后 https://www.swazs.com/book/1u7l41u/
+- 黎明协奏曲 https://www.swazs.com/book/1u7l41h/
+- 小虫的不正当职业 https://www.swazs.com/book/1u7l3ad/
+- 易孕直男虫母求生日记 https://www.swazs.com/book/1u7l39f/
+- 逆袭系统早来了十年后 https://www.swazs.com/book/1u7l362/
+- 开局外挂：对神明强取豪夺 [赛诗会作品] https://www.swazs.com/book/1u7kssm/
+- 失而复得的白月光[快穿] https://www.swazs.com/book/1u7kqpr/
+- 不知蝴蝶远 https://www.swazs.com/book/1u7kq7v/
+- 揣崽丧夫后被情敌强娶了 https://www.swazs.com/book/1u7kmcg/
+- 在年代文里跑运输 https://www.swazs.com/book/1u7kiuv/
+- 魔法种田，从退队经营农场开始 https://www.swazs.com/book/1u7kiut/
+- 今天还不可以造反吗？？？ https://www.swazs.com/book/1u7kcus/
+- 只好斗到底了 https://www.swazs.com/book/1u7kc4a/
+- [足球]足坛人生模拟器 https://www.swazs.com/book/1u7kapv/
+- 从维多利亚时代开始 https://www.swazs.com/book/1u7jtiv/
+- 在鬼怪世界当黄大仙的日子 https://www.swazs.com/book/1u7jrtt/
+- 网球！超级巨星[竞技] https://www.swazs.com/book/1u7jp0q/
+- 九零重组小家庭 https://www.swazs.com/book/1u7jodm/
+- [斗罗]你已有取死之道 https://www.swazs.com/book/1u7janv/
+- 天灾逃荒，绑定求生系统 https://www.swazs.com/book/1u7j6rg/
+- 可怜的天然呆直男[快穿] https://www.swazs.com/book/1u7j66f/
+- 我不可能舔一个漂亮捞子 https://www.swazs.com/book/1u7j17o/
+- 这不是乙女游戏吗 https://www.swazs.com/book/1u7j0rh/
+- 我们不是Cool 1吗 https://www.swazs.com/book/1u7ivb4/
+- 魔尊被迫变成幼崽后[快穿] https://www.swazs.com/book/1u7irt0/
+- [综英美]阿哈非说我是祂亲生的 https://www.swazs.com/book/1u7ir3f/
+- 被小蜘蛛听见心声后 https://www.swazs.com/book/1u7iqsq/
+- 韩团绿卡不想忍了 https://www.swazs.com/book/1u7ioj0/
+- 她生而为赢[无限] https://www.swazs.com/book/1u7im4m/
+- [全职高手]霸图老板是叶修 https://www.swazs.com/book/1u7ijk8/
+- 我能看到罪案记录［九零］ https://www.swazs.com/book/1u7ifnn/
+- 小掌门之快穿大乱斗 https://www.swazs.com/book/1u7iauv/
+- 养成游戏，但破解版 https://www.swazs.com/book/1u7ia2v/
+- 五十年代童养媳 https://www.swazs.com/book/1u7i8gk/
+- 拨云见轻燕 https://www.swazs.com/book/1u7hr0t/
+- 穿成渣A后爱上她老婆 https://www.swazs.com/book/1u7hpnu/
+- 酒厂克系兄妹情 https://www.swazs.com/book/1u7hp0d/
+- 被5T5养大的禅院惠 https://www.swazs.com/book/1u7hm0t/
+- 和港城大小姐先婚后爱了 https://www.swazs.com/book/1u7hl54/
+- 人偶崽崽也要做审神者吗 https://www.swazs.com/book/1u7hjfg/
+- 替身游戏 https://www.swazs.com/book/1u7hiat/
+- 明明是路人，却成了西幻反派Boss幼崽期 https://www.swazs.com/book/1u7habq/
+- 我靠写文在虫族成了救世主 https://www.swazs.com/book/1u7gs8n/
+- 大佬们排队要做我爹 https://www.swazs.com/book/1u7goei/
+- 耕种者，但种田游戏[诡秘之主] https://www.swazs.com/book/1u7gndd/
+- 说好当小厮咋成了养夫郎？ https://www.swazs.com/book/1u7gmg5/
+- 我在西幻开酒店 https://www.swazs.com/book/1u7glck/
+- 我的钓场是钓鱼佬的朝圣地 https://www.swazs.com/book/1u7gkn6/
+- 恶毒女配超恶毒 https://www.swazs.com/book/1u7gh37/
+- 反派他为何如此凶残 https://www.swazs.com/book/1u7ggtf/
+- [全职高手]在夺冠之路上轮回 https://www.swazs.com/book/1u7gego/
+- 我有一座安全城 [赛诗会作品] https://www.swazs.com/book/1u7filg/
+- 海岛求生：生活玩家种田囤货 https://www.swazs.com/book/1u7fia2/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.swazs.com/book/1u7fhbr/
+- 我是唯一地上神国 [赛诗会作品] https://www.swazs.com/book/1u7fhbm/
+- [娱乐圈]过分美丽的她 https://www.swazs.com/book/1u7fh4o/
+- 冥王陛下今天睡醒了吗[综英美] https://www.swazs.com/book/1u7fgnc/
+- 五十年代港城日常 https://www.swazs.com/book/1u7fgm8/
+- 全民求生:从小木屋到魔法农场 https://www.swazs.com/book/1u7fgkr/
+- 成为养成系练习生后 https://www.swazs.com/book/1u7fftb/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.swazs.com/book/1u7fft4/
+- 至尊法师克拉克[综英美] https://www.swazs.com/book/1u7ffpj/
+- 都说了我是在当炮灰[快穿] https://www.swazs.com/book/1u7ffnu/
+- 大瑛弟国 https://www.swazs.com/book/1u7ffko/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1400/index.md)
+- [最新热点小说](/site1400/newhot.md)
+- [人气小说](/site1400/b111.md)
+- [推荐小说](/site1400/recommend1.md)
+- [推荐小说列表](/site1400/recommend/index.md)
+- [热点小说](/site1400/hot/index.md)
+- [全本小说](/site1400/quanben/index.md)
+- [网站地图](/site1400/sitemap/index.md)
+- [标签](/site1400/tag/index.md)
+- [爱情小说](/site1400/category101/index.md)
+- [武侠小说](/site1400/category102/index.md)
+- [奇幻小说](/site1400/category103/index.md)
+- [仙侠小说](/site1400/category104/index.md)
+- [游戏小说](/site1400/category105/index.md)
+- [传奇小说](/site1400/category106/index.md)
+- [科幻小说](/site1400/category107/index.md)
+- [惊悚小说](/site1400/category109/index.md)
+- [悬疑小说](/site1400/category110/index.md)
