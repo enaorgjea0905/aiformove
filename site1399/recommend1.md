@@ -1,0 +1,195 @@
+
+# 佚名奇书小说 - 免费更新的小说阅读网站
+
+更新时间：2026-11-15 03:15:55
+
+佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。 https://www.yimingeduai.com
+
+## 最新小说
+- 女穿男之娶了闺蜜老师 https://www.yimingeduai.com/book/6adnq84/
+- 预知梦后，神明亲自下场 https://www.yimingeduai.com/book/6adnq83/
+- 听说我死后很凶 https://www.yimingeduai.com/book/6adnq82/
+- [综英美]你好我爹是白罐 https://www.yimingeduai.com/book/6adnq80/
+- 女配选择自己跳崖 https://www.yimingeduai.com/book/6adnq7v/
+- 琵琶行 https://www.yimingeduai.com/book/6adnq7u/
+- 普通人穿忍者世界，剧情崩了 https://www.yimingeduai.com/book/6adnq7t/
+- 当了豪门少爷的家教后 https://www.yimingeduai.com/book/6adnq7s/
+- 即使是龙也要交税 https://www.yimingeduai.com/book/6adnq7q/
+- 始乱终弃枭雄后 https://www.yimingeduai.com/book/6adnq7p/
+- 病树枝头 https://www.yimingeduai.com/book/6adnq7o/
+- 偿还 https://www.yimingeduai.com/book/6adnq7n/
+- 鬼杀队最严厉的母亲 https://www.yimingeduai.com/book/6adnq7l/
+- 被夺妻之后 https://www.yimingeduai.com/book/6adnq7k/
+- 继兄是火葬场男二 https://www.yimingeduai.com/book/6adnq7j/
+- 宋二娘暴富指南 https://www.yimingeduai.com/book/6adnq7i/
+- 六年后夺她入怀 https://www.yimingeduai.com/book/6adnq7h/
+- 我不可能是帝国元帅 https://www.yimingeduai.com/book/6adnq7g/
+- 在立海大和丸井谈恋爱 https://www.yimingeduai.com/book/6adnq7f/
+- 迹部他超爱的 https://www.yimingeduai.com/book/6adnq7e/
+- 世界备忘录 https://www.yimingeduai.com/book/6adnq7d/
+- 穿进漫画了？还好我是bking！ https://www.yimingeduai.com/book/6adnq7c/
+- 夏夜摇晃 https://www.yimingeduai.com/book/6adnq7a/
+- 从童星开始[娱乐圈] https://www.yimingeduai.com/book/6adnq79/
+- 娇气包和前夫一起穿越后 https://www.yimingeduai.com/book/6adnq78/
+- 我不要做虫母 https://www.yimingeduai.com/book/6adnq77/
+- 雾里京夜[先婚后爱] https://www.yimingeduai.com/book/6adnq76/
+- 最强也会有害怕的事吗？ https://www.yimingeduai.com/book/6adnq74/
+- Alpha男高扮演网络渣攻 https://www.yimingeduai.com/book/6adnq73/
+- 衔泥燕 https://www.yimingeduai.com/book/6adnq72/
+- 龙傲天就该被撅 https://www.yimingeduai.com/book/6adnq71/
+- 从菜市场开始 https://www.yimingeduai.com/book/6adnq70/
+- 一统忍界也包括迎娶宿敌吗？ https://www.yimingeduai.com/book/6adnq6v/
+- 回到帝后反目前 https://www.yimingeduai.com/book/6adnq6u/
+- 别对着我老板流口水！ https://www.yimingeduai.com/book/6adnq6t/
+- 和直男龙傲天假扮夫妻后 https://www.yimingeduai.com/book/6adnq6s/
+- 渣攻他谁也不爱！[快穿] https://www.yimingeduai.com/book/6adnq6r/
+- 二婚夫君超勇猛 https://www.yimingeduai.com/book/6adnq6q/
+- 溺青 https://www.yimingeduai.com/book/6adnq6p/
+- 被反派权臣鸡娃的日子 https://www.yimingeduai.com/book/6adnq6o/
+- 在九零开出租的日子 https://www.yimingeduai.com/book/6adnq6n/
+- 我直播卖墓地后爆红了 https://www.yimingeduai.com/book/6adnq6m/
+- 恶毒女配盘活黄毛老公[九零] https://www.yimingeduai.com/book/6adnq6l/
+- 荒野安全屋囤货求生 https://www.yimingeduai.com/book/6adnq6k/
+- 神豪系统，但穿回八零 https://www.yimingeduai.com/book/6adnq6i/
+- 恋与上帝之子 https://www.yimingeduai.com/book/6adnq6h/
+- 天幕向汉武帝直播我造反 https://www.yimingeduai.com/book/6adnq6g/
+- 我真没想看奥特战士的特殊CG啊 https://www.yimingeduai.com/book/6adnq6f/
+- 明日新婚［先婚后爱］ https://www.yimingeduai.com/book/6adnq6e/
+- 高门小通房 https://www.yimingeduai.com/book/6adnq6d/
+- 美国传奇女大亨 https://www.yimingeduai.com/book/6adnq6c/
+- 纯情男大穿书恶毒炮灰 https://www.yimingeduai.com/book/6adnq6b/
+- 我爸松田超凶的 https://www.yimingeduai.com/book/6adnq6a/
+- 全网嗑了我和前男友的cp https://www.yimingeduai.com/book/6adnq69/
+- 豪门大佬养崽手册 https://www.yimingeduai.com/book/6adnq68/
+- [综英美]灵媒侦探真人秀 https://www.yimingeduai.com/book/6adnq67/
+- 她只想继承遗产(穿书) https://www.yimingeduai.com/book/6adnq65/
+- 星际第一能源师 https://www.yimingeduai.com/book/6adnq64/
+- 模拟多次后，竟成了所有人的白月光 https://www.yimingeduai.com/book/6adnq62/
+- 状元郎他武德充沛（科举） https://www.yimingeduai.com/book/6adnq61/
+- 放着我来（强取豪夺） https://www.yimingeduai.com/book/6adnq60/
+- 穿厂妹后连夜提桶跑路 https://www.yimingeduai.com/book/6adnq5v/
+- 捡到少年索隆后 https://www.yimingeduai.com/book/6adnq5u/
+- 娶了集团太子爷当老婆 https://www.yimingeduai.com/book/6adnq5t/
+- 香江第一天师[八零] https://www.yimingeduai.com/book/6adnq5s/
+- 缠珑 https://www.yimingeduai.com/book/6adnq5r/
+- 勇者落选后开启种田面板 https://www.yimingeduai.com/book/6adnq5q/
+- 画里春宵共君梦 https://www.yimingeduai.com/book/6adnq5p/
+- 由通房到贵妃娘娘的日常 https://www.yimingeduai.com/book/6adnq5o/
+- 觊觎姐姐前女友很多年 https://www.yimingeduai.com/book/6adnq5n/
+- 新寡被接入王府后 https://www.yimingeduai.com/book/6adnq5m/
+- 小明珠 https://www.yimingeduai.com/book/6adnq5l/
+- 灭世反派假装我娘亲 https://www.yimingeduai.com/book/6adnq5k/
+- 这个小镇祂活着 https://www.yimingeduai.com/book/6adnq5j/
+- 我，精神病，拒绝五夏修罗场 https://www.yimingeduai.com/book/6adnq5i/
+- 满级大佬又在迫害宗门 https://www.yimingeduai.com/book/6adnq5h/
+- 绝色美人随军躺平日常 https://www.yimingeduai.com/book/6adnq5g/
+- 小狗也能当家长吗[九零] https://www.yimingeduai.com/book/6adnq5f/
+- 邪神扮演模拟器 https://www.yimingeduai.com/book/6adnq5e/
+- 她一个侍女哪懂这个 https://www.yimingeduai.com/book/6adnq5d/
+- 不要向魔鬼许愿 https://www.yimingeduai.com/book/6adnq5c/
+- 说谁封建大爹呢（穿越） https://www.yimingeduai.com/book/6adnq5b/
+- 六零重组家庭协议养娃 https://www.yimingeduai.com/book/6adnq5a/
+- 徐娘子在皇家佛寺摆摊的日常 https://www.yimingeduai.com/book/6adnq59/
+- 监所人机恋倒计时 https://www.yimingeduai.com/book/6adnq58/
+- 太子疯了怎么办 https://www.yimingeduai.com/book/6adnq57/
+- 可我是个疯批 https://www.yimingeduai.com/book/6adnq56/
+- 山神的农家乐 https://www.yimingeduai.com/book/6adnq55/
+- 拆迁后，全家上了杀猪盘名单 https://www.yimingeduai.com/book/6adnq54/
+- 九鼎 https://www.yimingeduai.com/book/6adnq53/
+- 港夜春山 https://www.yimingeduai.com/book/6adnq52/
+- [足球]真以为名宿好当呢 https://www.yimingeduai.com/book/6adnq51/
+- 冷脸萌主攻手的万人迷指南 https://www.yimingeduai.com/book/6adnq50/
+- 穿渣A和清冷O先孕后爱 https://www.yimingeduai.com/book/6adnq4v/
+- [综崩铁]两只小浣熊称霸横滨之旅 https://www.yimingeduai.com/book/6adnq4t/
+- 妻子她非人类 https://www.yimingeduai.com/book/6adnq4s/
+- 对，傍上大佬了！ https://www.yimingeduai.com/book/6adnq4r/
+- 退婚第一年，她另嫁他人 https://www.yimingeduai.com/book/6adnq4q/
+- 被天幕曝光谋逆的我送封建老登集体劳改［直播］ https://www.yimingeduai.com/book/6adnq4p/
+- ［综英美］蝙蝠家旁的好好先生 https://www.yimingeduai.com/book/6adnq4o/
+- [综英美]天与暴君模板加载中 https://www.yimingeduai.com/book/6adnq4n/
+- 大小姐在人外限制片靠美貌成神 https://www.yimingeduai.com/book/6adnq4m/
+- 天灾逃荒，绑定求生系统 https://www.yimingeduai.com/book/6adnq4l/
+- 黎明协奏曲 https://www.yimingeduai.com/book/6adnq3m/
+- 她柔弱不能自理 https://www.yimingeduai.com/book/6adnq1h/
+- 笨蛋美人主动和亲后 https://www.yimingeduai.com/book/6adnpvj/
+- 逆袭系统早来了十年后 https://www.yimingeduai.com/book/6adnpuf/
+- 易孕直男虫母求生日记 https://www.yimingeduai.com/book/6adnpts/
+- 小虫的不正当职业 https://www.yimingeduai.com/book/6adnpq1/
+- 揣崽丧夫后被情敌强娶了 https://www.yimingeduai.com/book/6adnjfd/
+- 魔法种田，从退队经营农场开始 https://www.yimingeduai.com/book/6adng3a/
+- 在年代文里跑运输 https://www.yimingeduai.com/book/6adng2s/
+- 今天还不可以造反吗？？？ https://www.yimingeduai.com/book/6adnfa8/
+- 只好斗到底了 https://www.yimingeduai.com/book/6adnerj/
+- [足球]足坛人生模拟器 https://www.yimingeduai.com/book/6adnbcs/
+- 九零重组小家庭 https://www.yimingeduai.com/book/6adn1kr/
+- 从维多利亚时代开始 https://www.yimingeduai.com/book/6adn07r/
+- 在鬼怪世界当黄大仙的日子 https://www.yimingeduai.com/book/6admujc/
+- 网球！超级巨星[竞技] https://www.yimingeduai.com/book/6admrj7/
+- 魔尊被迫变成幼崽后[快穿] https://www.yimingeduai.com/book/6admd73/
+- [全职高手]霸图老板是叶修 https://www.yimingeduai.com/book/6admc44/
+- 五十年代童养媳 https://www.yimingeduai.com/book/6adltqe/
+- 和港城大小姐先婚后爱了 https://www.yimingeduai.com/book/6adls3u/
+- 她生而为赢[无限] https://www.yimingeduai.com/book/6adlj9c/
+- 明明是路人，却成了西幻反派Boss幼崽期 https://www.yimingeduai.com/book/6adlhdt/
+- 养成游戏，但破解版 https://www.yimingeduai.com/book/6adlh1l/
+- 韩团绿卡不想忍了 https://www.yimingeduai.com/book/6adlgoi/
+- 可怜的天然呆直男[快穿] https://www.yimingeduai.com/book/6adlda6/
+- 说好当小厮咋成了养夫郎？ https://www.yimingeduai.com/book/6adlbpb/
+- 我们不是Cool 1吗 https://www.yimingeduai.com/book/6adlaum/
+- 耕种者，但种田游戏[诡秘之主] https://www.yimingeduai.com/book/6adla8g/
+- 大佬们排队要做我爹 https://www.yimingeduai.com/book/6adl8a8/
+- [综英美]阿哈非说我是祂亲生的 https://www.yimingeduai.com/book/6adkti3/
+- [斗罗]你已有取死之道 https://www.yimingeduai.com/book/6adkoqk/
+- 失而复得的白月光[快穿] https://www.yimingeduai.com/book/6adkm3u/
+- 酒厂克系兄妹情 https://www.yimingeduai.com/book/6adk5s2/
+- 被小蜘蛛听见心声后 https://www.yimingeduai.com/book/6adk4iu/
+- 我不可能舔一个漂亮捞子 https://www.yimingeduai.com/book/6adk3mo/
+- 替身游戏 https://www.yimingeduai.com/book/6adk2lb/
+- 小掌门之快穿大乱斗 https://www.yimingeduai.com/book/6adk0m2/
+- 开局外挂：对神明强取豪夺 [赛诗会作品] https://www.yimingeduai.com/book/6adjujn/
+- 拨云见轻燕 https://www.yimingeduai.com/book/6adjtnt/
+- 人偶崽崽也要做审神者吗 https://www.yimingeduai.com/book/6adjqkb/
+- 不知蝴蝶远 https://www.yimingeduai.com/book/6adjp39/
+- 穿成渣A后爱上她老婆 https://www.yimingeduai.com/book/6adjlpq/
+- 被5T5养大的禅院惠 https://www.yimingeduai.com/book/6adji0i/
+- 我能看到罪案记录［九零］ https://www.yimingeduai.com/book/6adjgjh/
+- 我靠写文在虫族成了救世主 https://www.yimingeduai.com/book/6adje3s/
+- 这不是乙女游戏吗 https://www.yimingeduai.com/book/6adjdli/
+- 我的钓场是钓鱼佬的朝圣地 https://www.yimingeduai.com/book/6adjanm/
+- 我在西幻开酒店 https://www.yimingeduai.com/book/6adja6v/
+- 恶毒女配超恶毒 https://www.yimingeduai.com/book/6adj7es/
+- 反派他为何如此凶残 https://www.yimingeduai.com/book/6adj70t/
+- [全职高手]在夺冠之路上轮回 https://www.yimingeduai.com/book/6adj4lm/
+- 全民求生:从小木屋到魔法农场 https://www.yimingeduai.com/book/6adi8o2/
+- 海岛求生：生活玩家种田囤货 https://www.yimingeduai.com/book/6adi8em/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.yimingeduai.com/book/6adi853/
+- 冥王陛下今天睡醒了吗[综英美] https://www.yimingeduai.com/book/6adi7mj/
+- 成为养成系练习生后 https://www.yimingeduai.com/book/6adi7bm/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.yimingeduai.com/book/6adi75l/
+- [娱乐圈]过分美丽的她 https://www.yimingeduai.com/book/6adi742/
+- 我是唯一地上神国 [赛诗会作品] https://www.yimingeduai.com/book/6adi70r/
+- 五十年代港城日常 https://www.yimingeduai.com/book/6adi6nm/
+- 我有一座安全城 [赛诗会作品] https://www.yimingeduai.com/book/6adi6ln/
+- 大瑛弟国 https://www.yimingeduai.com/book/6adi6bh/
+- 至尊法师克拉克[综英美] https://www.yimingeduai.com/book/6adi6a9/
+- 都说了我是在当炮灰[快穿] https://www.yimingeduai.com/book/6adi5gg/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1399/index.md)
+- [最新热点小说](/site1399/newhot.md)
+- [人气小说](/site1399/b111.md)
+- [推荐小说](/site1399/recommend1.md)
+- [推荐小说列表](/site1399/recommend/index.md)
+- [热点小说](/site1399/hot/index.md)
+- [全本小说](/site1399/quanben/index.md)
+- [网站地图](/site1399/sitemap/index.md)
+- [标签](/site1399/tag/index.md)
+- [爱情小说](/site1399/category101/index.md)
+- [武侠小说](/site1399/category102/index.md)
+- [奇幻小说](/site1399/category103/index.md)
+- [仙侠小说](/site1399/category104/index.md)
+- [游戏小说](/site1399/category105/index.md)
+- [传奇小说](/site1399/category106/index.md)
+- [科幻小说](/site1399/category107/index.md)
+- [惊悚小说](/site1399/category109/index.md)
+- [悬疑小说](/site1399/category110/index.md)
