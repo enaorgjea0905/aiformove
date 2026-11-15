@@ -1,0 +1,195 @@
+
+# 威勇士开心读书网-最值得书友收藏的网络小说阅读平台
+
+更新时间：2026-11-15 03:13:05
+
+威勇士开心读书网是广大书友最值得收藏的网络小说阅读网。网站收录了当前最火热的网络小说，平台上的所有文学作品均来源于热心用户的积极上传。分享小说，享受阅读乐趣！ https://www.weiyongshi.com
+
+## 最新小说
+- 衔泥燕 https://www.weiyongshi.com/book/4e1j6r1/
+- 监所人机恋倒计时 https://www.weiyongshi.com/book/4e1j6r0/
+- 夏夜摇晃 https://www.weiyongshi.com/book/4e1j6qv/
+- 和直男龙傲天假扮夫妻后 https://www.weiyongshi.com/book/4e1j6qt/
+- 别对着我老板流口水！ https://www.weiyongshi.com/book/4e1j6qr/
+- 从菜市场开始 https://www.weiyongshi.com/book/4e1j6qp/
+- 在九零开出租的日子 https://www.weiyongshi.com/book/4e1j6qn/
+- [综英美]你好我爹是白罐 https://www.weiyongshi.com/book/4e1j6qj/
+- 明日新婚［先婚后爱］ https://www.weiyongshi.com/book/4e1j6qf/
+- 邪神扮演模拟器 https://www.weiyongshi.com/book/4e1j6qd/
+- 小狗也能当家长吗[九零] https://www.weiyongshi.com/book/4e1j6q8/
+- 状元郎他武德充沛（科举） https://www.weiyongshi.com/book/4e1j6q7/
+- 我不可能是帝国元帅 https://www.weiyongshi.com/book/4e1j6q3/
+- 即使是龙也要交税 https://www.weiyongshi.com/book/4e1j6q2/
+- 娇气包和前夫一起穿越后 https://www.weiyongshi.com/book/4e1j6q1/
+- 被反派权臣鸡娃的日子 https://www.weiyongshi.com/book/4e1j6q0/
+- 全网嗑了我和前男友的cp https://www.weiyongshi.com/book/4e1j6pu/
+- 缠珑 https://www.weiyongshi.com/book/4e1j6pt/
+- 豪门大佬养崽手册 https://www.weiyongshi.com/book/4e1j6ps/
+- 女配选择自己跳崖 https://www.weiyongshi.com/book/4e1j6pq/
+- 当了豪门少爷的家教后 https://www.weiyongshi.com/book/4e1j6po/
+- 世界备忘录 https://www.weiyongshi.com/book/4e1j6pn/
+- 拆迁后，全家上了杀猪盘名单 https://www.weiyongshi.com/book/4e1j6pm/
+- 不要向魔鬼许愿 https://www.weiyongshi.com/book/4e1j6pg/
+- 穿进漫画了？还好我是bking！ https://www.weiyongshi.com/book/4e1j6pf/
+- 我爸松田超凶的 https://www.weiyongshi.com/book/4e1j6pd/
+- 神豪系统，但穿回八零 https://www.weiyongshi.com/book/4e1j6pb/
+- 被夺妻之后 https://www.weiyongshi.com/book/4e1j6pa/
+- 勇者落选后开启种田面板 https://www.weiyongshi.com/book/4e1j6p4/
+- 灭世反派假装我娘亲 https://www.weiyongshi.com/book/4e1j6p1/
+- Alpha男高扮演网络渣攻 https://www.weiyongshi.com/book/4e1j6ov/
+- 觊觎姐姐前女友很多年 https://www.weiyongshi.com/book/4e1j6op/
+- 渣攻他谁也不爱！[快穿] https://www.weiyongshi.com/book/4e1j6oo/
+- 捡到少年索隆后 https://www.weiyongshi.com/book/4e1j6om/
+- 由通房到贵妃娘娘的日常 https://www.weiyongshi.com/book/4e1j6ok/
+- 我真没想看奥特战士的特殊CG啊 https://www.weiyongshi.com/book/4e1j6oh/
+- 说谁封建大爹呢（穿越） https://www.weiyongshi.com/book/4e1j6of/
+- 六零重组家庭协议养娃 https://www.weiyongshi.com/book/4e1j6o8/
+- 纯情男大穿书恶毒炮灰 https://www.weiyongshi.com/book/4e1j6o6/
+- 回到帝后反目前 https://www.weiyongshi.com/book/4e1j6o5/
+- 二婚夫君超勇猛 https://www.weiyongshi.com/book/4e1j6o4/
+- 继兄是火葬场男二 https://www.weiyongshi.com/book/4e1j6o3/
+- 香江第一天师[八零] https://www.weiyongshi.com/book/4e1j6o1/
+- 我，精神病，拒绝五夏修罗场 https://www.weiyongshi.com/book/4e1j6nv/
+- 天幕向汉武帝直播我造反 https://www.weiyongshi.com/book/4e1j6nt/
+- 徐娘子在皇家佛寺摆摊的日常 https://www.weiyongshi.com/book/4e1j6nr/
+- 始乱终弃枭雄后 https://www.weiyongshi.com/book/4e1j6nq/
+- 新寡被接入王府后 https://www.weiyongshi.com/book/4e1j6np/
+- 荒野安全屋囤货求生 https://www.weiyongshi.com/book/4e1j6no/
+- 绝色美人随军躺平日常 https://www.weiyongshi.com/book/4e1j6nm/
+- 小明珠 https://www.weiyongshi.com/book/4e1j6nk/
+- 在立海大和丸井谈恋爱 https://www.weiyongshi.com/book/4e1j6ni/
+- 迹部他超爱的 https://www.weiyongshi.com/book/4e1j6nh/
+- 偿还 https://www.weiyongshi.com/book/4e1j6na/
+- 女穿男之娶了闺蜜老师 https://www.weiyongshi.com/book/4e1j6n9/
+- 娶了集团太子爷当老婆 https://www.weiyongshi.com/book/4e1j6n4/
+- 溺青 https://www.weiyongshi.com/book/4e1j6n2/
+- [综英美]灵媒侦探真人秀 https://www.weiyongshi.com/book/4e1j6n1/
+- 这个小镇祂活着 https://www.weiyongshi.com/book/4e1j6n0/
+- 恋与上帝之子 https://www.weiyongshi.com/book/4e1j6mr/
+- 可我是个疯批 https://www.weiyongshi.com/book/4e1j6mq/
+- 一统忍界也包括迎娶宿敌吗？ https://www.weiyongshi.com/book/4e1j6mo/
+- 恶毒女配盘活黄毛老公[九零] https://www.weiyongshi.com/book/4e1j6mn/
+- 龙傲天就该被撅 https://www.weiyongshi.com/book/4e1j6mm/
+- 我不要做虫母 https://www.weiyongshi.com/book/4e1j6ml/
+- 病树枝头 https://www.weiyongshi.com/book/4e1j6mf/
+- 最强也会有害怕的事吗？ https://www.weiyongshi.com/book/4e1j6md/
+- 她只想继承遗产(穿书) https://www.weiyongshi.com/book/4e1j6mb/
+- 美国传奇女大亨 https://www.weiyongshi.com/book/4e1j6ma/
+- 穿厂妹后连夜提桶跑路 https://www.weiyongshi.com/book/4e1j6m9/
+- 听说我死后很凶 https://www.weiyongshi.com/book/4e1j6m6/
+- 普通人穿忍者世界，剧情崩了 https://www.weiyongshi.com/book/4e1j6m4/
+- 山神的农家乐 https://www.weiyongshi.com/book/4e1j6m1/
+- 雾里京夜[先婚后爱] https://www.weiyongshi.com/book/4e1j6m0/
+- 琵琶行 https://www.weiyongshi.com/book/4e1j6lu/
+- 她一个侍女哪懂这个 https://www.weiyongshi.com/book/4e1j6lt/
+- 星际第一能源师 https://www.weiyongshi.com/book/4e1j6ls/
+- 宋二娘暴富指南 https://www.weiyongshi.com/book/4e1j6lr/
+- 放着我来（强取豪夺） https://www.weiyongshi.com/book/4e1j6lp/
+- 我直播卖墓地后爆红了 https://www.weiyongshi.com/book/4e1j6lo/
+- 满级大佬又在迫害宗门 https://www.weiyongshi.com/book/4e1j6lm/
+- 从童星开始[娱乐圈] https://www.weiyongshi.com/book/4e1j6lk/
+- 鬼杀队最严厉的母亲 https://www.weiyongshi.com/book/4e1j6lh/
+- 太子疯了怎么办 https://www.weiyongshi.com/book/4e1j6le/
+- 高门小通房 https://www.weiyongshi.com/book/4e1j6ld/
+- 预知梦后，神明亲自下场 https://www.weiyongshi.com/book/4e1j6lb/
+- 模拟多次后，竟成了所有人的白月光 https://www.weiyongshi.com/book/4e1j6l9/
+- 画里春宵共君梦 https://www.weiyongshi.com/book/4e1j6l8/
+- 六年后夺她入怀 https://www.weiyongshi.com/book/4e1j6l7/
+- 港夜春山 https://www.weiyongshi.com/book/4e1j6l3/
+- 退婚第一年，她另嫁他人 https://www.weiyongshi.com/book/4e1j6l2/
+- 九鼎 https://www.weiyongshi.com/book/4e1j6l1/
+- [综崩铁]两只小浣熊称霸横滨之旅 https://www.weiyongshi.com/book/4e1j6l0/
+- ［综英美］蝙蝠家旁的好好先生 https://www.weiyongshi.com/book/4e1j6kv/
+- 大小姐在人外限制片靠美貌成神 https://www.weiyongshi.com/book/4e1j6ku/
+- 开局外挂：对神明强取豪夺 [赛诗会作品] https://www.weiyongshi.com/book/4e1it6k/
+- 失而复得的白月光[快穿] https://www.weiyongshi.com/book/4e1irds/
+- 黎明协奏曲 https://www.weiyongshi.com/book/4e1iptr/
+- 笨蛋美人主动和亲后 https://www.weiyongshi.com/book/4e1ipqq/
+- 不知蝴蝶远 https://www.weiyongshi.com/book/4e1infe/
+- 可怜的天然呆直男[快穿] https://www.weiyongshi.com/book/4e1ik97/
+- 只好斗到底了 https://www.weiyongshi.com/book/4e1ie0o/
+- 都说了我是在当炮灰[快穿] https://www.weiyongshi.com/book/4e1ic5d/
+- 今天还不可以造反吗？？？ https://www.weiyongshi.com/book/4e1iaqk/
+- 被小蜘蛛听见心声后 https://www.weiyongshi.com/book/4e1i0m0/
+- [斗罗]你已有取死之道 https://www.weiyongshi.com/book/4e1i0km/
+- 在鬼怪世界当黄大仙的日子 https://www.weiyongshi.com/book/4e1huh9/
+- 网球！超级巨星[竞技] https://www.weiyongshi.com/book/4e1hrfr/
+- 逆袭系统早来了十年后 https://www.weiyongshi.com/book/4e1hpe7/
+- 易孕直男虫母求生日记 https://www.weiyongshi.com/book/4e1hpck/
+- 我不可能舔一个漂亮捞子 https://www.weiyongshi.com/book/4e1h7s6/
+- 我们不是Cool 1吗 https://www.weiyongshi.com/book/4e1h766/
+- 这不是乙女游戏吗 https://www.weiyongshi.com/book/4e1h38a/
+- 魔尊被迫变成幼崽后[快穿] https://www.weiyongshi.com/book/4e1h27m/
+- [综英美]阿哈非说我是祂亲生的 https://www.weiyongshi.com/book/4e1h0rm/
+- [综英美]天与暴君模板加载中 https://www.weiyongshi.com/book/4e1gqut/
+- [全职高手]霸图老板是叶修 https://www.weiyongshi.com/book/4e1gq3l/
+- [足球]真以为名宿好当呢 https://www.weiyongshi.com/book/4e1gove/
+- 她生而为赢[无限] https://www.weiyongshi.com/book/4e1goph/
+- 穿渣A和清冷O先孕后爱 https://www.weiyongshi.com/book/4e1gom5/
+- 我能看到罪案记录［九零］ https://www.weiyongshi.com/book/4e1gk6q/
+- 小虫的不正当职业 https://www.weiyongshi.com/book/4e1ggph/
+- 五十年代童养媳 https://www.weiyongshi.com/book/4e1gfu1/
+- 养成游戏，但破解版 https://www.weiyongshi.com/book/4e1gf1n/
+- 小掌门之快穿大乱斗 https://www.weiyongshi.com/book/4e1gegh/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.weiyongshi.com/book/4e1gaap/
+- 和港城大小姐先婚后爱了 https://www.weiyongshi.com/book/4e1g343/
+- 穿成渣A后爱上她老婆 https://www.weiyongshi.com/book/4e1g03g/
+- 酒厂克系兄妹情 https://www.weiyongshi.com/book/4e1fu2h/
+- 拨云见轻燕 https://www.weiyongshi.com/book/4e1fsat/
+- 人偶崽崽也要做审神者吗 https://www.weiyongshi.com/book/4e1frfc/
+- 冥王陛下今天睡醒了吗[综英美] https://www.weiyongshi.com/book/4e1fppt/
+- 至尊法师克拉克[综英美] https://www.weiyongshi.com/book/4e1fp23/
+- 被5T5养大的禅院惠 https://www.weiyongshi.com/book/4e1fop7/
+- 替身游戏 https://www.weiyongshi.com/book/4e1fl1c/
+- 明明是路人，却成了西幻反派Boss幼崽期 https://www.weiyongshi.com/book/4e1fhik/
+- 她柔弱不能自理 https://www.weiyongshi.com/book/4e1fgv8/
+- 说好当小厮咋成了养夫郎？ https://www.weiyongshi.com/book/4e1f684/
+- 妻子她非人类 https://www.weiyongshi.com/book/4e1f5us/
+- 被天幕曝光谋逆的我送封建老登集体劳改［直播］ https://www.weiyongshi.com/book/4e1f37o/
+- 我在西幻开酒店 https://www.weiyongshi.com/book/4e1f0js/
+- 我靠写文在虫族成了救世主 https://www.weiyongshi.com/book/4e1evqt/
+- 大佬们排队要做我爹 https://www.weiyongshi.com/book/4e1evbs/
+- 我的钓场是钓鱼佬的朝圣地 https://www.weiyongshi.com/book/4e1etvg/
+- 耕种者，但种田游戏[诡秘之主] https://www.weiyongshi.com/book/4e1eo2b/
+- 反派他为何如此凶残 https://www.weiyongshi.com/book/4e1eli4/
+- 恶毒女配超恶毒 https://www.weiyongshi.com/book/4e1ek65/
+- 天灾逃荒，绑定求生系统 https://www.weiyongshi.com/book/4e1ek1k/
+- 冷脸萌主攻手的万人迷指南 https://www.weiyongshi.com/book/4e1eh0m/
+- 揣崽丧夫后被情敌强娶了 https://www.weiyongshi.com/book/4e1egkb/
+- [全职高手]在夺冠之路上轮回 https://www.weiyongshi.com/book/4e1egj7/
+- 对，傍上大佬了！ https://www.weiyongshi.com/book/4e1efsh/
+- 大瑛弟国 https://www.weiyongshi.com/book/4e1dl8p/
+- 我有一座安全城 [赛诗会作品] https://www.weiyongshi.com/book/4e1dl37/
+- 韩团绿卡不想忍了 https://www.weiyongshi.com/book/4e1dl27/
+- 海岛求生：生活玩家种田囤货 https://www.weiyongshi.com/book/4e1dl0g/
+- [娱乐圈]过分美丽的她 https://www.weiyongshi.com/book/4e1dkoo/
+- 从维多利亚时代开始 https://www.weiyongshi.com/book/4e1dke1/
+- [足球]足坛人生模拟器 https://www.weiyongshi.com/book/4e1dkco/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.weiyongshi.com/book/4e1dk2n/
+- 九零重组小家庭 https://www.weiyongshi.com/book/4e1djvh/
+- 成为养成系练习生后 https://www.weiyongshi.com/book/4e1djtn/
+- 全民求生:从小木屋到魔法农场 https://www.weiyongshi.com/book/4e1dj46/
+- 我是唯一地上神国 [赛诗会作品] https://www.weiyongshi.com/book/4e1ditt/
+- 魔法种田，从退队经营农场开始 https://www.weiyongshi.com/book/4e1dio4/
+- 在年代文里跑运输 https://www.weiyongshi.com/book/4e1di75/
+- 五十年代港城日常 https://www.weiyongshi.com/book/4e1di3g/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1414/index.md)
+- [最新热点小说](/site1414/newhot.md)
+- [人气小说](/site1414/b111.md)
+- [推荐小说](/site1414/recommend1.md)
+- [推荐小说列表](/site1414/recommend/index.md)
+- [热点小说](/site1414/hot/index.md)
+- [全本小说](/site1414/quanben/index.md)
+- [网站地图](/site1414/sitemap/index.md)
+- [标签](/site1414/tag/index.md)
+- [爱情小说](/site1414/category101/index.md)
+- [武侠小说](/site1414/category102/index.md)
+- [奇幻小说](/site1414/category103/index.md)
+- [仙侠小说](/site1414/category104/index.md)
+- [游戏小说](/site1414/category105/index.md)
+- [传奇小说](/site1414/category106/index.md)
+- [科幻小说](/site1414/category107/index.md)
+- [惊悚小说](/site1414/category109/index.md)
+- [悬疑小说](/site1414/category110/index.md)
